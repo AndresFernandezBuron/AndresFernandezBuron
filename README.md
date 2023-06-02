@@ -2,11 +2,11 @@
 
 <table width="100%" border="0" cellpadding="0" cellspacing="0"><tbody>
 <tr>
-<td align="center">
+<td width="50%" align="center">
 <h3>Hola 👋, soy Andrés Fernández Burón</h3>
 <p>Un apasionado desarrollador de España y éste es mi perfil de GitHub</p>
 </td>
-<td align="center">
+<td width="50%" align="center">
 <h3>Hi 👋, I'm Andres Fernandez Buron</h3>
 <p>A passionate developer from Spain and this is my GitHub profile</p>
 </td>
@@ -40,7 +40,7 @@
 </td>
 </tr>
 <tr>
-<td align="left">
+<td width="50%" align="left">
 <h4>Languages:</h4>
 <a href="https://www.cprogramming.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/c/c-original.svg" alt="c" width="40" height="40"/> </a> 
 <a href="https://www.w3schools.com/cpp/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/cplusplus/cplusplus-original.svg" alt="cplusplus" width="40" height="40"/> </a> 
@@ -51,7 +51,7 @@
 <a href="https://www.php.net" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/php/php-original.svg" alt="php" width="40" height="40"/> </a> 
 <a href="https://developer.mozilla.org/en-US/docs/Web/JavaScript" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/javascript/javascript-original.svg" alt="javascript" width="40" height="40"/> </a> 
 </td>
-<td align="left">
+<td width="50%" align="left">
 <h4>Frameworks:</h4>
 <a href="https://getbootstrap.com" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/bootstrap/bootstrap-plain-wordmark.svg" alt="bootstrap" width="40" height="40"/> </a> 
 <a href="https://www.chartjs.org" target="_blank" rel="noreferrer"> <img src="https://www.chartjs.org/media/logo-title.svg" alt="chartjs" width="40" height="40"/> </a> 
@@ -60,7 +60,7 @@
 </td>
 </tr>
 <tr>
-<td align="left">
+<td width="50%" align="left">
 <h4>Databases:</h4>
 <a href="https://www.mysql.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/mysql/mysql-original-wordmark.svg" alt="mysql" width="40" height="40"/> </a> 
 <a href="https://mariadb.org/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/mariadb/mariadb-icon.svg" alt="mariadb" width="40" height="40"/> </a> 
@@ -68,7 +68,7 @@
 <a href="https://www.oracle.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/oracle/oracle-original.svg" alt="oracle" width="40" height="40"/> </a> 
 <a href="https://www.sqlite.org/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/sqlite/sqlite-icon.svg" alt="sqlite" width="40" height="40"/> </a> 
 </td>
-<td align="left">
+<td width="50%" align="left">
 <h4>Tools:</h4>
 <a href="https://www.linux.org/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/linux/linux-original.svg" alt="linux" width="40" height="40"/> </a> 
 <a href="https://www.arduino.cc/" target="_blank" rel="noreferrer"> <img src="https://cdn.worldvectorlogo.com/logos/arduino-1.svg" alt="arduino" width="40" height="40"/> </a> 
@@ -83,10 +83,10 @@
 </td>
 </tr>
 <tr>
-<td align="left" valign="top">
+<td width="50%" align="left" valign="top">
 <img src="https://github-readme-stats.vercel.app/api/top-langs?username=andresfernandezburon&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="andresfernandezburon" />
 </td>
-<td align="right" valign="top">
+<td width="50%" align="right" valign="top">
 <img src="https://github-readme-stats.vercel.app/api?username=andresfernandezburon&show_icons=true&locale=en&theme=tokyonight" alt="andresfernandezburon" />
 
 <img src="https://github-readme-streak-stats.herokuapp.com/?user=andresfernandezburon&theme=tokyonight" alt="andresfernandezburon" />

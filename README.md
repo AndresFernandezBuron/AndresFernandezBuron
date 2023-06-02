@@ -1,4 +1,4 @@
-# GitHub profile - Andres Fernandez Buron
+<h1>GitHub profile - Andres Fernandez Buron</h1>
 <table width="100%" border="0" cellpadding="0" cellspacing="0"><tbody>
 <tr>
 <td colspan="2">
@@ -27,7 +27,9 @@
 <td width="50%" align="center" valign="top">
 
 Hola 👋 soy 
-## Andrés Fernández Burón
+
+**Andrés Fernández Burón**
+
 Un apasionado desarrollador de España
 
 y éste es mi perfil de GitHub
@@ -35,7 +37,9 @@ y éste es mi perfil de GitHub
 <td width="50%" align="center" valign="top">
 
 Hi 👋, I'm
-## Andres Fernandez Buron
+
+**Andrés Fernández Burón**
+
 A passionate developer from Spain
 
 and this is my GitHub profile
@@ -44,13 +48,14 @@ and this is my GitHub profile
 <tr>
 <td align="center" valign="middle" colspan="2">
 
-### Used languages and tools:
+**Used languages and tools:**
 </td>
 </tr>
 <tr>
 <td width="50%" align="left" valign="top">
 
-#### Languages:
+Languages:
+
 <a href="https://www.cprogramming.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/c/c-original.svg" alt="c" width="40" height="40"/> </a> 
 <a href="https://www.w3schools.com/cpp/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/cplusplus/cplusplus-original.svg" alt="cplusplus" width="40" height="40"/> </a> 
 <a href="https://www.java.com" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/java/java-original.svg" alt="java" width="40" height="40"/> </a> 
@@ -62,7 +67,8 @@ and this is my GitHub profile
 </td>
 <td width="50%" align="right" valign="top">
 
-#### Frameworks:
+Frameworks:
+
 <a href="https://getbootstrap.com" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/bootstrap/bootstrap-plain-wordmark.svg" alt="bootstrap" width="40" height="40"/> </a> 
 <a href="https://www.chartjs.org" target="_blank" rel="noreferrer"> <img src="https://www.chartjs.org/media/logo-title.svg" alt="chartjs" width="40" height="40"/> </a> 
 <a href="https://jquery.com.org" target="_blank" rel="noreferrer"> <img src="https://jquery.com/jquery-wp-content/themes/jquery/images/logo-jquery.png" alt="jquery" width="120" height="40"/> </a> 
@@ -72,7 +78,8 @@ and this is my GitHub profile
 <tr>
 <td width="50%" align="left" valign="top">
 
-#### Databases:
+Databases:
+
 <a href="https://www.mysql.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/mysql/mysql-original-wordmark.svg" alt="mysql" width="40" height="40"/> </a> 
 <a href="https://mariadb.org/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/mariadb/mariadb-icon.svg" alt="mariadb" width="40" height="40"/> </a> 
 <a href="https://www.postgresql.org" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/postgresql/postgresql-original-wordmark.svg" alt="postgresql" width="40" height="40"/> </a> 
@@ -81,7 +88,8 @@ and this is my GitHub profile
 </td>
 <td width="50%" align="right" valign="top">
 
-#### Tools:
+Tools:
+
 <a href="https://www.linux.org/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/linux/linux-original.svg" alt="linux" width="40" height="40"/> </a> 
 <a href="https://www.arduino.cc/" target="_blank" rel="noreferrer"> <img src="https://cdn.worldvectorlogo.com/logos/arduino-1.svg" alt="arduino" width="40" height="40"/> </a> 
 <a href="https://www.docker.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/docker/docker-original-wordmark.svg" alt="docker" width="40" height="40"/> </a> 
@@ -92,7 +100,8 @@ and this is my GitHub profile
 <tr>
 <td align="center" valign="middle" colspan="2">
 
-### GitHub stats:
+**GitHub stats:**
+
 </td>
 </tr>
 <tr>

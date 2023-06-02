@@ -2,11 +2,11 @@
 
 <table width="100%" border="0" cellpadding="0" cellspacing="0"><tbody>
 <tr>
-<td width="50%" align="center">
+<td width="50%" align="center" valign="top">
 <h3>Hola 👋, soy Andrés Fernández Burón</h3>
 <p>Un apasionado desarrollador de España y éste es mi perfil de GitHub</p>
 </td>
-<td width="50%" align="center">
+<td width="50%" align="center" valign="top">
 <h3>Hi 👋, I'm Andres Fernandez Buron</h3>
 <p>A passionate developer from Spain and this is my GitHub profile</p>
 </td>
@@ -35,7 +35,7 @@
 </td>
 </tr>
 <tr>
-<td align="center" colspan="2">
+<td align="center" valign="top" colspan="2">
 <h3>Used languages and tools:</h3>
 </td>
 </tr>
@@ -78,7 +78,7 @@
 </td>
 </tr>
 <tr>
-<td align="center" colspan="2">
+<td align="center" valign="top" colspan="2">
 <h3 align="center">GitHub stats:</h3>
 </td>
 </tr>

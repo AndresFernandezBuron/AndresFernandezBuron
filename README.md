@@ -1,6 +1,6 @@
 <h1 align="center">GitHub profile - Andres Fernandez Buron</h1>
 
-<table width="100%" cellpadding="0" cellspacing="0" border="0"><tbody>
+<table width="100%" border="0" cellpadding="0" cellspacing="0"><tbody>
 <tr>
 <td align="center">
 <h3>Hola 👋, soy Andrés Fernández Burón</h3>
@@ -11,9 +11,9 @@
 <p>A passionate developer from Spain and this is my GitHub profile</p>
 </td>
 </tr>
-</tbody></table>
-
-<font size="2" color="#0287fb"><strong>
+<tr>
+<td colspan="2">
+<strong>
 <pre>
     _              _ 
    / \   _ __   __| |_ __ ___  ___ 
@@ -31,9 +31,9 @@
 | |_) | |_| | | | (_) | | | |
 |____/ \__,_|_|  \___/|_| |_|
 </pre>
-</strong></font>
-
-<table width="auto" cellpadding="0" cellspacing="0" border="0px"><tbody>
+</strong>
+</td>
+</tr>
 <tr>
 <td align="center" colspan="2">
 <h3>Used languages and tools:</h3>
@@ -77,22 +77,22 @@
 <a href="https://git-scm.com/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/git-scm/git-scm-icon.svg" alt="git" width="40" height="40"/> </a> 
 </td>
 </tr>
-</tbody></table>
-
-<hr>
-<h3 align="center">GitHub stats:</h3>
-
-<table width="100%" cellpadding="0" cellspacing="0" border="0px"><tbody>
 <tr>
-<td align="center" valign="top">
+<td align="center" colspan="2">
+<h3 align="center">GitHub stats:</h3>
+</td>
+</tr>
+<tr>
+<td align="left" valign="top">
 <img src="https://github-readme-stats.vercel.app/api/top-langs?username=andresfernandezburon&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="andresfernandezburon" />
 </td>
-<td align="center" valign="top">
-&nbsp;
+<td align="right" valign="top">
 <img src="https://github-readme-stats.vercel.app/api?username=andresfernandezburon&show_icons=true&locale=en&theme=tokyonight" alt="andresfernandezburon" />
+
 <img src="https://github-readme-streak-stats.herokuapp.com/?user=andresfernandezburon&theme=tokyonight" alt="andresfernandezburon" />
 </td>
 </tr>
+
 </tbody></table>
 
 <p align="right">

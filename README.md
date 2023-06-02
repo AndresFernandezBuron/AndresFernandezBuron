@@ -35,7 +35,7 @@
 </td>
 </tr>
 <tr>
-<td align="center" valign="top" colspan="2">
+<td align="center" valign="middle" colspan="2">
 <h3>Used languages and tools:</h3>
 </td>
 </tr>
@@ -78,7 +78,7 @@
 </td>
 </tr>
 <tr>
-<td align="center" valign="top" colspan="2">
+<td align="center" valign="middle" colspan="2">
 <h3 align="center">GitHub stats:</h3>
 </td>
 </tr>

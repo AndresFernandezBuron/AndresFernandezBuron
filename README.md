@@ -1,15 +1,12 @@
 <h1>GitHub profile - Andres Fernandez Buron</h1>
 <table width="100%" border="0" cellpadding="0" cellspacing="0"><tbody>
-<tr>
-<td colspan="2">
-<strong>
-<pre>
+<tr><td colspan="2"><strong><pre>
     _              _ 
    / \   _ __   __| |_ __ ___  ___ 
   / _ \ | '_ \ / _` | '__/ _ \/ __|
  / ___ \| | | | (_| | | |  __/\__ \
 /_/   \_\_| |_|\__,_|_|  \___||___/
- _____                               _ 
+ _____   ``                            _ 
 |  ___|__ _ __ _ __   __ _ _ __   __| | ___ ____
 | |_ / _ \ '__| '_ \ / _` | '_ \ / _` |/ _ \_  /
 |  _|  __/ |  | | | | (_| | | | | (_| |  __// / 
@@ -19,20 +16,25 @@
 |  _ \| | | | '__/ _ \| '_ \ 
 | |_) | |_| | | | (_) | | | |
 |____/ \__,_|_|  \___/|_| |_|
-</pre>
-</strong>
-</td>
-</tr>
-<tr>
-<td width="50%" align="center" valign="top">
+</pre></strong></td></tr>
+<tr><td width="50%" align="center" valign="top">
 
 :raising_hand_man: Hola, soy 
 
 **Andrés Fernández Burón**,
 
-un apasionado desarrollador de España :earth_africa:
+un apasionado desarrollador de España
 
-y éste es mi perfil de GitHub
+y éste es mi perfil de GitHub.
+
+<br>
+
+Estoy buscando trabajo en remoto,
+
+preferiblemente en español.
+    
+<br>
+    
 </td>
 <td width="50%" align="center" valign="top">
 
@@ -40,17 +42,23 @@ y éste es mi perfil de GitHub
 
 **Andres Fernandez Buron**,
 
-a passionate developer from Spain :earth_africa:
+a passionate developer from Spain
 
-and this is my GitHub profile
-</td>
-</tr>
-<tr>
-<td align="center" valign="middle" colspan="2">
+and this is my GitHub profile.
+
+<br>
+    
+I'm looking for remote work,
+    
+preferably in Spanish.
+    
+<br>
+    
+</td></tr>
+<tr><td align="center" valign="middle" colspan="2">
 
 **Used languages and tools:**
-</td>
-</tr>
+</td></tr>
 <tr>
 <td width="50%" align="left" valign="top">
 
@@ -76,6 +84,7 @@ Frameworks:
 <a href="https://www.wordpress.org" target="_blank" rel="noreferrer"> <img src="https://s.w.org/favicon.ico?2" alt="wordpress" width="40" height="40"/> </a> 
 </td>
 </tr>
+<tr></tr>
 <tr>
 <td width="50%" align="left" valign="top">
 
@@ -98,13 +107,11 @@ Tools:
 <a href="https://git-scm.com/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/git-scm/git-scm-icon.svg" alt="git" width="40" height="40"/> </a> 
 </td>
 </tr>
-<tr>
-<td align="center" valign="middle" colspan="2">
+<tr><td align="center" valign="middle" colspan="2">
 
 **GitHub stats:**
 
-</td>
-</tr>
+</td></tr>
 <tr>
 <td width="50%" align="left" valign="top">
 <img src="https://github-readme-stats.vercel.app/api/top-langs?username=andresfernandezburon&show_icons=true&locale=en&layout=compact&theme=tokyonight" alt="andresfernandezburon" width="100%" />
@@ -115,9 +122,7 @@ Tools:
 <img src="https://github-readme-streak-stats.herokuapp.com/?user=andresfernandezburon&theme=tokyonight" alt="andresfernandezburon" width="100%" />
 </td>
 </tr>
-
 </tbody></table>
-
 <p align="right">
 <img src="https://komarev.com/ghpvc/?username=andresfernandezburon&label=Profile%20views&color=0e75b6&style=flat&theme=dark" alt="andresfernandezburon" />
 </p>

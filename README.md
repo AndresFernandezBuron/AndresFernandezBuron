@@ -29,7 +29,7 @@ y éste es mi perfil de GitHub.
 
 <br>
 
-Estoy buscando trabajo en remoto,
+Actualmente estoy buscando trabajo en remoto,
 
 preferiblemente en español.
     
@@ -48,7 +48,7 @@ and this is my GitHub profile.
 
 <br>
     
-I'm looking for remote work,
+At this moment, I'm looking for remote work,
     
 preferably in Spanish.
     

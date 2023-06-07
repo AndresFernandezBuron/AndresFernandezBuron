@@ -23,9 +23,7 @@
 
 **Andrés Fernández Burón**,
 
-un apasionado desarrollador de España
-
-y éste es mi perfil de GitHub.
+un apasionado desarrollador de España.
 
 <br>
 
@@ -42,9 +40,7 @@ preferiblemente en español.
 
 **Andres Fernandez Buron**,
 
-a passionate developer from Spain
-
-and this is my GitHub profile.
+a passionate developer from Spain.
 
 <br>
     

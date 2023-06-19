@@ -52,7 +52,7 @@ a developer from Spain.
     
 Totalitarian and illegal covid policies have brought many changes to my life.
     
-I'm looking for a remote job in Spanish, because I need to leave the basque country and and cause I want to stay away from any state institution.
+I'm looking for a remote job in Spanish, because I need to leave the basque country and cause I want to stay away from any state institution.
     
 If you help me, I won't forget it.
     

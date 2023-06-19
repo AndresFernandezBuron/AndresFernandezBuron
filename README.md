@@ -29,7 +29,7 @@ un desarrollador de España.
 
 Las políticas totalitarias e ilegales del covid han traído muchos cambios a mi vida.
     
-Estoy buscando trabajo en remoto en español, porque necesito irme del país vasco y estar lejos de cualquier institución de estado.
+Estoy buscando trabajo en remoto en español, porque necesito irme del país vasco para siempre y estar lejos de cualquier institución de estado.
 
 Si me ayudas, no lo olvidaré.
 
@@ -50,7 +50,7 @@ a developer from Spain.
 
 <br>
     
-Totalitarian covid policies have brought many changes to my life.
+Totalitarian and illegal covid policies have brought many changes to my life.
     
 I'm looking for a remote job in Spanish, because I need to leave the basque country and and cause I want to stay away from any state institution.
     

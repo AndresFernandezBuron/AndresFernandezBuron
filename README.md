@@ -27,9 +27,12 @@ un apasionado desarrollador de España.
 
 <br>
 
-Actualmente estoy buscando trabajo en remoto,
+Las políticas covid han traído muchos cambios a mi vida.
+Estoy buscando trabajo en remoto en español, porque necesito irme del país vasco y lejos de cualquier institución de estado.
 
-preferiblemente en español.
+<br>
+    
+Puedes encontrar más información sobre mi, en Infojobs.
     
 <br>
     
@@ -44,9 +47,11 @@ a passionate developer from Spain.
 
 <br>
     
-At this moment, I'm looking for remote work,
+Totalitariam covid policies have brought many changes to my life. I am looking for a remote job in Spanish, because I need to leave the Basque country and away from any state institution.
     
-preferably in Spanish.
+<br>
+    
+You can find more information about me at Infojobs.
     
 <br>
     

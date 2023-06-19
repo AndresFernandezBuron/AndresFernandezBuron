@@ -27,8 +27,11 @@ un desarrollador de España.
 
 <br>
 
-Las políticas covid han traído muchos cambios a mi vida.
-Estoy buscando trabajo en remoto en español, porque necesito irme del país vasco y lejos de cualquier institución de estado.
+Las políticas totalitarias del covid han traído muchos cambios a mi vida.
+    
+Estoy <u>buscando trabajo en remoto en español</u>, porque necesito irme del país vasco y lejos de cualquier institución de estado.
+
+Si me ayudas, no lo olvidaré.
 
 <br>
     
@@ -43,11 +46,15 @@ Puedes encontrar más información sobre mi, en Infojobs.
 
 **Andres Fernandez Buron**,
 
-a passionate developer from Spain.
+a developer from Spain.
 
 <br>
     
-Totalitariam covid policies have brought many changes to my life. I am looking for a remote job in Spanish, because I need to leave the basque country and away from any state institution.
+Totalitarian covid policies have brought many changes to my life.
+    
+I'm <u>looking for a remote job in Spanish</u>, because I need to leave the basque country and and cause I want to stay away from any state institution.
+    
+If you help me, I won't forget it.
     
 <br>
     

@@ -23,7 +23,7 @@
 
 **Andrés Fernández Burón**,
 
-un apasionado desarrollador de España.
+un desarrollador de España.
 
 <br>
 
@@ -47,7 +47,7 @@ a passionate developer from Spain.
 
 <br>
     
-Totalitariam covid policies have brought many changes to my life. I am looking for a remote job in Spanish, because I need to leave the Basque country and away from any state institution.
+Totalitariam covid policies have brought many changes to my life. I am looking for a remote job in Spanish, because I need to leave the basque country and away from any state institution.
     
 <br>
     

@@ -65,16 +65,28 @@ You can find more information about me at Infojobs.
 </td></tr><tr></tr>
 <tr><td colspan="2"><pre>
 <html><head></head><body></body><script>
-let matriz = [
-	['N','O','R','U','B'],
-	['Z','E','D','N','A','N','R','E','F'],
-	['S','E','R','D','N','A'],
+let data = [
+	[
+		['N','O'],
+		['R','U','B']
+	],
+	[
+		['Z','E'],
+		['D','N'],
+		['A','N','R'],
+		['E','F']
+	],
+	[
+		['S','E'],
+		['R','D'],
+		['N','A']
+	],
 ];
 let text = '';
-for(let i=matriz.length-1;i>=0;i--) {
-	for(let j=matriz[i].length-1;j>=0;j--) {
-		for(let k=matriz[i][j].length-1;k>=0;k--)
-			text += matriz[i][j][k];
+for(let i=data.length-1;i>=0;i--) {
+	for(let j=data[i].length-1;j>=0;j--) {
+		for(let k=data[i][j].length-1;k>=0;k--)
+			text += data[i][j][k];
 	}
 	text += ' ';
 }

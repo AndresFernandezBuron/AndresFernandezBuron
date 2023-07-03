@@ -134,9 +134,71 @@ Tools:
 </p>
 
 </td></tr>
-<tr>
 
- 
+<tr><td align="center" valign="middle" colspan="2">
+
+**Fun facts:**
+</tr>
+<tr><td colspan="2">
+	
+- If you don't like it, you don't understand it. 🤡
+
+- This is for laughs. If you aren't smart, you can go directly to the technical part.
+
+- My favorite film is Kill Bill.
+
+- I'm vaccinated against idiocracy.
+
+- You won't see me outside Spain, cause I haven't Tobby-pass.
+
+- I only eat food, if I expend energy.
+
+- I don't go with the flow, cause I'm not a dead fish.
+
+- What I hate about the truth, is that often people love lies.
+
+- I no longer trust in the creator, cause perfection wouldn't have created stupidity and stupid evil.
+
+- The only people I admire and would follow are Jesus and Viriato.
+
+- Sometimes I search IT job offers, to laugh reading them.
+
+- I can know how the job market is for a developer, looking at how many people have applied for a crap job.
+
+- I have principles, and if you don't like them, you should hire Groucho Marx.
+
+- A frame of Charlie Chaplin is worth more than a thousand words.
+
+- The American I like best is Cantinflas.
+
+- Math says you can only love me if you love yourself.
+
+- I love Hip-Hop culture, so I don't know who the rappers you know are.
+
+- I'm stupid and I don't like that, cause I'm smarter than the rest.
+
+- I believe that the Martians don't come to the Earth, cause they haven't found intelligent life yet.
+
+- During each question on an intelligence test, they told me: Do it, at least try it. And I answered: I've already finished it.
+
+- The only politicians I would support were assassinated.
+
+- The more police there are, the more insecure I live.
+
+- I'm a patriot, and that is why I would never work for my country.
+
+- First of all, I love people, and that's why I would never work for another country.
+
+- The only technical reason I have for using English, is that the Spaniards have focused on being second-rate.
+
+- My level of English is worse than Google Translator's.
+
+- I'm usually serious, but I laugh in the face of adversity.
+
+- There are people who think I'm a bit autistic, but I don't understand them because they dont't tell me it written on a card.
+
+- Keep calm. Animus iocandi. Just joker.
+
 </tr>
 <tr><td align="center" valign="middle" colspan="2">
 

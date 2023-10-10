@@ -29,13 +29,7 @@ un desarrollador de España.
 
 Las políticas totalitarias e ilegales covid han traído muchos cambios a mi vida.
     
-Estoy buscando trabajo en remoto en español, porque necesito irme del país vasco y estar lejos de cualquier institución de estado.
-
-Si me ayudas, no lo olvidaré.
-
-<br>
-    
-Puedes encontrar más información sobre mi, en Infojobs.
+Estoy buscando trabajo en remoto en español, porque requiero dinero y estar lejos de cualquier institución de estado.
     
 <br>
     
@@ -52,13 +46,7 @@ a developer from Spain.
     
 Totalitarian and illegal covid policies have brought many changes to my life.
     
-I'm looking for a remote job in Spanish, because I need to leave the basque country and cause I want to stay away from any state institution.
-    
-If you help me, I won't forget it.
-    
-<br>
-    
-You can find more information about me at Infojobs.
+I'm looking for a remote job in Spanish, because I need money I want to stay away from any state institution.
     
 <br>
     
@@ -205,104 +193,5 @@ Tools:
 **Who am I:**
 </td></tr>
 <tr><td colspan="2"><pre>
-let data = [
-	[
-		[ 
-			[
-				['A','L'],
-				['L'],
-			],
-			[
-				['I','C','N','U'],
-			]
-		],
-		[ 
-			[
-				['O','L'],
-				['L','I'],
-			],
-			[
-				['Q','U'],
-				['H','A','S']
-			]
-		],
-		[
-			[
-				['A','I','C'],
-				['R','A','G']
-			]
-		]
-	],
-	[
-		[ 
-			[
-				['O','N'],
-				['A','C']
-			]
-		],
-		[
-			[
-				['E','C'],
-				['R','A']
-			]
-		]
-	],
-	[
-		[
-			[
-				['A','G'],
-				['E','T'],
-			],
-			[
-				['R','O']
-			]
-		],
-		[
-			[
-				['N'],
-				['O','R'],
-			],
-			[
-				['U','B']
-			]
-		]
-	],
-	[
-		[
-			[
-				['Z','E'],
-				['D','N'],
-			],
-			[
-				['A'],
-				['N','R'],
-				['E','F']
-			]
-		],
-		[
-			[
-				['S','E'],
-				['R','D'],
-			],
-			[
-				['N','A']
-			]
-		]
-	],
-];
-let text = '';
-for(let i=data.length-1;i>=0;i--) {
-	for(let j=data[i].length-1;j>=0;j--) {
-		for(let k=data[i][j].length-1;k>=0;k--) {
-			for(let l=data[i][j][k].length-1;l>=0;l--) {
-				for(let m=data[i][j][k][l].length-1;m>=0;m--)
-					text += data[i][j][k][l][m];
-			}
-		}
-		text += ' ';
-	}
-}
-document.querySelectorAll('body')[0].innerHTML = text;
-</script></html>
 </pre></td></tr>
 </tbody></table>

@@ -235,6 +235,12 @@ https://www.youtube.com/watch?v=SbsiuQiVRho
 Mucho muchacho - Gasto mis días
 https://www.youtube.com/watch?v=MeVWN0oE7wA
 
+J Álvarez - On top of da world
+https://www.youtube.com/watch?v=ONP7HnxKPUY
+
+J Alvarez - La Fama Que Camina
+https://www.youtube.com/watch?v=KFZz8XjfP88
+
 Cecilio G - Million dollar baby
 https://www.youtube.com/watch?v=Ym59_2x6zgU
 

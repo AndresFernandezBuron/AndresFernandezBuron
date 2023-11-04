@@ -192,10 +192,6 @@ Tools:
 
 **Who am I:**
 </td></tr>
-<tr><td colspan="2"><pre>
-</pre></td></tr>
-
-****
 <tr><td align="center" valign="middle" colspan="2">
 
 **My music:**
@@ -216,6 +212,20 @@ https://www.youtube.com/watch?v=u8-ZJAJOlY8
 
 Notorius BIG - Juicy
 https://www.youtube.com/watch?v=_JZom_gVfuw
+
+Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5uOQ
+
+Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
+
+Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE
+
+Chinatown - Me lo copian todo (liquida) https://www.youtube.com/watch?v=BTrDvga6iLs
+
+Chinatown - De más y de menos https://www.youtube.com/watch?v=2xQ6LrmGhaU
+
+Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ
+
+Chinatown - Lo bueno y lo malo https://www.youtube.com/watch?v=B0NPaSTmOm
 
 50 cent - God gave me style
 https://www.youtube.com/watch?v=_O36lno6EmU
@@ -245,6 +255,5 @@ Cecilio G - Million dollar baby
 https://www.youtube.com/watch?v=Ym59_2x6zgU
 
 </td></tr>
-*****
 
 </tbody></table>

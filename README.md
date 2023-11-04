@@ -275,9 +275,9 @@ https://www.youtube.com/watch?v=Ym59_2x6zgU
 
 Reflexiones en un mundo enfermamente malvado:
 
-Comparto esta reflexión, aquí (que es mi único perfil en redes sociales), porque vivimos en una sociedad tóxica, en la que parece que el ser humano, con su autoproclamada inteligencia superior, no sabe vivir sin perjudicar al propio ecosistema del que depende.
+Comparto esta reflexión, aquí (que es mi único perfil en redes sociales), porque vivimos en una sociedad tóxica, en la que parece que el ser humano, con su autoproclamada inteligencia superior, no sabe vivir sin perjudicar al propio ecosistema del que forma parte y depende.
 
-A mí que me he construído mediante el autoconocimiento y posterior autotransmutación, siempre me ha resultado muy interesante también, el entender a los demás.
+A mí, que me he construído mediante el autoconocimiento y posterior autotransmutación, siempre me ha resultado muy interesante también, el entender a los demás.
 
 Yo he conocido muchos tipos de personas, y a lo largo de los años me fui dando cuenta de que muchos victimarios, habían sido víctimas de lo que ellos mismos hacían.
 

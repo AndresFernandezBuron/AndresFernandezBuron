@@ -267,4 +267,35 @@ https://www.youtube.com/watch?v=Ym59_2x6zgU
 
 </td></tr>
 
+<tr><td align="center" valign="middle" colspan="2">
+
+**Reflections on a sickly evil world:**
+</tr>
+<tr><td colspan="2">
+
+Reflexiones en un mundo enfermamente malvado:
+
+Comparto esta reflexión, aquí (que es mi único perfil en redes sociales), porque vivimos en una sociedad tóxica, en la que parece que el ser humano, con su autoproclamada inteligencia superior, no sabe vivir sin perjudicar al propio ecosistema del que depende.
+
+A mí que me he construído mediante el autoconocimiento y posterior autotransmutación, siempre me ha resultado muy interesante también, el entender a los demás.
+
+Yo he conocido muchos tipos de personas, y a lo largo de los años me fui dando cuenta de que muchos victimarios, habían sido víctimas de lo que ellos mismos hacían.
+
+Es decir que en muchas ocasiones, el ser victimario, es consecuencia de haber sido víctima.
+O incluso, es la forma en la que a veces, de forma inconsciente, la persona gestiona la situación de haber sido víctima.
+
+Con la puntualización de que la víctima que se convierte en victimario, no se defiende de su agresor ni se opone a éste.
+Si no que de forma inconsciente busca a alguien más débil, con el objetivo de no sentirse cómo cúando fue víctima o de sentirse resarcido.
+
+En conclusión, he observado que frente a una agresión:
+- La respuesta de una personalidad (o circunstacia) débil, es convertirse en victimario de alguien más débil.
+- La respuesta de una personalidad (o circunstacia) fuerte, es lidiar con ella, e incluso empatizar con otras víctimas y defenderlas.
+
+Y es por eso que alguien fuerte puede ser temido, pero sobre todo, es respetado.
+Mientras que alquien débil, puede ser temido, pero nunca respetado.
+
+En definitiva, la fortaleza o debilidad no se refleja en la capacidad de hacer daño, si no en la forma en la que se interactúa con el daño.
+
+</td></tr>
+
 </tbody></table>

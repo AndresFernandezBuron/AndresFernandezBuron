@@ -232,6 +232,8 @@ Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE
 
 Chinatown - Me lo copian todo (liquida) https://www.youtube.com/watch?v=BTrDvga6iLs
 
+Ganda - Me lo copian todo (parte 2) https://www.youtube.com/watch?v=EBo8PL6k47c
+
 Chinatown - De más y de menos https://www.youtube.com/watch?v=2xQ6LrmGhaU
 
 Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ

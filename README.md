@@ -215,9 +215,9 @@ Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
 2 Pac - Keep ya head up https://www.youtube.com/watch?v=SHVzWMFMH6Y
 
-KRS one - Tek Nologyhttps://www.youtube.com/watch?v=u8-ZJAJOlY8
+KRS one - Tek Nology https://www.youtube.com/watch?v=u8-ZJAJOlY8
 
-Notorius BIG - Juicyhttps://www.youtube.com/watch?v=_JZom_gVfuw
+Notorius BIG - Juicy https://www.youtube.com/watch?v=_JZom_gVfuw
 
 Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5uOQ
 
@@ -239,7 +239,7 @@ Capaz - Una verdad cruel  https://www.youtube.com/watch?v=xX4qCM5sN5s
 
 Supernafamacho - Vamos a volar  https://www.youtube.com/watch?v=E6W6UnNWfv8
 
-Supernafamacho ft. Mushikko - Trioleros espaciales  https://www.youtube.com/watch?v=5zcY_jJolcs
+Supernafamacho ft. Mushikko - Trileros espaciales  https://www.youtube.com/watch?v=5zcY_jJolcs
 
 Lady Yaco ft. Supernafamacho - Libre  https://www.youtube.com/watch?v=JoX8c51qeyE
 

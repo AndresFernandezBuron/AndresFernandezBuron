@@ -240,6 +240,18 @@ Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ
 
 Chinatown - Lo bueno y lo malo https://www.youtube.com/watch?v=B0NPaSTmOm
 
+Supernafamacho - Vamos a volar https://www.youtube.com/watch?v=E6W6UnNWfv8
+
+Supernafamacho ft. Mushikko - Trioleros espaciales https://www.youtube.com/watch?v=5zcY_jJolcs
+
+Lady Yaco ft. Supernafamacho - Libre https://www.youtube.com/watch?v=JoX8c51qeyE
+
+Supernafamacho - Hablan de mí https://www.youtube.com/watch?v=aw0_8dseLzg
+
+Supernafamacho - Tranquilo https://www.youtube.com/watch?v=2xLRutJJcBE
+
+Jesuly - Días https://www.youtube.com/watch?v=rJdGVzPnqTw
+
 50 cent - God gave me style
 https://www.youtube.com/watch?v=_O36lno6EmU
 

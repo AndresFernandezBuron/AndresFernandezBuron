@@ -209,94 +209,63 @@ for(;;)
 </tr>
 <tr><td colspan="2">
 
-Las mejores obras de Mozart
-https://www.youtube.com/watch?v=Rb0UmrCXxVA
+Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
-2 Pac - Smile
-https://www.youtube.com/watch?v=RhG-0Ei0Qxk
+2 Pac ft. Scarface - Smile https://www.youtube.com/watch?v=RhG-0Ei0Qxk
 
-2 Pac - Keep ya head up
-https://www.youtube.com/watch?v=SHVzWMFMH6Y
+2 Pac - Keep ya head up https://www.youtube.com/watch?v=SHVzWMFMH6Y
 
-KRS one - Tek Nology
-https://www.youtube.com/watch?v=u8-ZJAJOlY8
+KRS one - Tek Nologyhttps://www.youtube.com/watch?v=u8-ZJAJOlY8
 
-Notorius BIG - Juicy
-https://www.youtube.com/watch?v=_JZom_gVfuw
+Notorius BIG - Juicyhttps://www.youtube.com/watch?v=_JZom_gVfuw
 
-Vico C - Pregúntale a tu papá por mí 
-https://www.youtube.com/watch?v=bZ5hZMc5uOQ
+Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5uOQ
 
-Chinatown - Domino 
-https://www.youtube.com/watch?v=C2agsVZISGM
+Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
 
-Chinatown - Cria cuervos 
-https://www.youtube.com/watch?v=6amc3C2EbYE
+Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE
 
-Chinatown - Me lo copian todo (liquida) 
-https://www.youtube.com/watch?v=BTrDvga6iLs
+Chinatown - Me lo copian todo (liquida) https://www.youtube.com/watch?v=BTrDvga6iLs
 
-Ganda - Me lo copian todo (parte 2) 
-https://www.youtube.com/watch?v=EBo8PL6k47c
+Ganda - Me lo copian todo (parte 2) https://www.youtube.com/watch?v=EBo8PL6k47c
 
-Chinatown - De más y de menos 
-https://www.youtube.com/watch?v=2xQ6LrmGhaU
+Chinatown - De más y de menos https://www.youtube.com/watch?v=2xQ6LrmGhaU
 
-Chinatown - Todo perdido 
-https://www.youtube.com/watch?v=YCv3KTTsCzQ
+Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ
 
-Chinatown - Lo bueno y lo malo 
-https://www.youtube.com/watch?v=B0NPaSTmOm
+Chinatown - Lo bueno y lo malo  https://www.youtube.com/watch?v=B0NPaSTmOm
 
-Capaz - Una verdad cruel 
-https://www.youtube.com/watch?v=xX4qCM5sN5s
+Capaz - Una verdad cruel  https://www.youtube.com/watch?v=xX4qCM5sN5s
 
-Supernafamacho - Vamos a volar 
-https://www.youtube.com/watch?v=E6W6UnNWfv8
+Supernafamacho - Vamos a volar  https://www.youtube.com/watch?v=E6W6UnNWfv8
 
-Supernafamacho ft. Mushikko - Trioleros espaciales 
-https://www.youtube.com/watch?v=5zcY_jJolcs
+Supernafamacho ft. Mushikko - Trioleros espaciales  https://www.youtube.com/watch?v=5zcY_jJolcs
 
-Lady Yaco ft. Supernafamacho - Libre 
-https://www.youtube.com/watch?v=JoX8c51qeyE
+Lady Yaco ft. Supernafamacho - Libre  https://www.youtube.com/watch?v=JoX8c51qeyE
 
-Supernafamacho - Hablan de mí 
-https://www.youtube.com/watch?v=aw0_8dseLzg
+Supernafamacho - Hablan de mí  https://www.youtube.com/watch?v=aw0_8dseLzg
 
-Supernafamacho - Tranquilo 
-https://www.youtube.com/watch?v=2xLRutJJcBE
+Jesuly - Días  https://www.youtube.com/watch?v=rJdGVzPnqTw
 
-Jesuly - Días https://www.youtube.com/watch?v=rJdGVzPnqTw
+50 cent - God gave me style https://www.youtube.com/watch?v=_O36lno6EmU
 
-50 cent - God gave me style
-https://www.youtube.com/watch?v=_O36lno6EmU
+50 cent - Many men https://www.youtube.com/watch?v=5D3crqpClPY
 
-50 cent - Many men
-https://www.youtube.com/watch?v=5D3crqpClPY
+50 cent - If I can't  https://www.youtube.com/watch?v=EowpnVeh8i8
 
-50 cent - If I can't 
-https://www.youtube.com/watch?v=EowpnVeh8i8
+Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
 
-Spanish Fly - Mi corazón me marca el camino
-https://www.youtube.com/watch?v=87prpH6oImQ
+Cosulluela ft. John Jay - Si te me pegas https://www.youtube.com/watch?v=9BfjvuYLBeU
 
-Cosulluela ft. John Jay - Si te me pegas
-https://www.youtube.com/watch?v=9BfjvuYLBeU
+7 Notas 7 Colores - 800 https://www.youtube.com/watch?v=SbsiuQiVRho
 
-7 Notas 7 Colores - 800
-https://www.youtube.com/watch?v=SbsiuQiVRho
+Mucho muchacho - Gasto mis días https://www.youtube.com/watch?v=MeVWN0oE7wA
 
-Mucho muchacho - Gasto mis días
-https://www.youtube.com/watch?v=MeVWN0oE7wA
+J Álvarez - On top of da world https://www.youtube.com/watch?v=ONP7HnxKPUY
 
-J Álvarez - On top of da world
-https://www.youtube.com/watch?v=ONP7HnxKPUY
+J Alvarez - La Fama Que Camina https://www.youtube.com/watch?v=KFZz8XjfP88
 
-J Alvarez - La Fama Que Camina
-https://www.youtube.com/watch?v=KFZz8XjfP88
-
-Cecilio G - Million dollar baby
-https://www.youtube.com/watch?v=Ym59_2x6zgU
+Cecilio G - Million dollar baby https://www.youtube.com/watch?v=Ym59_2x6zgU
 
 </td></tr>
 

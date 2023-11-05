@@ -224,31 +224,47 @@ https://www.youtube.com/watch?v=u8-ZJAJOlY8
 Notorius BIG - Juicy
 https://www.youtube.com/watch?v=_JZom_gVfuw
 
-Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5uOQ
+Vico C - Pregúntale a tu papá por mí 
+https://www.youtube.com/watch?v=bZ5hZMc5uOQ
 
-Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
+Chinatown - Domino 
+https://www.youtube.com/watch?v=C2agsVZISGM
 
-Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE
+Chinatown - Cria cuervos 
+https://www.youtube.com/watch?v=6amc3C2EbYE
 
-Chinatown - Me lo copian todo (liquida) https://www.youtube.com/watch?v=BTrDvga6iLs
+Chinatown - Me lo copian todo (liquida) 
+https://www.youtube.com/watch?v=BTrDvga6iLs
 
-Ganda - Me lo copian todo (parte 2) https://www.youtube.com/watch?v=EBo8PL6k47c
+Ganda - Me lo copian todo (parte 2) 
+https://www.youtube.com/watch?v=EBo8PL6k47c
 
-Chinatown - De más y de menos https://www.youtube.com/watch?v=2xQ6LrmGhaU
+Chinatown - De más y de menos 
+https://www.youtube.com/watch?v=2xQ6LrmGhaU
 
-Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ
+Chinatown - Todo perdido 
+https://www.youtube.com/watch?v=YCv3KTTsCzQ
 
-Chinatown - Lo bueno y lo malo https://www.youtube.com/watch?v=B0NPaSTmOm
+Chinatown - Lo bueno y lo malo 
+https://www.youtube.com/watch?v=B0NPaSTmOm
 
-Supernafamacho - Vamos a volar https://www.youtube.com/watch?v=E6W6UnNWfv8
+Capaz - Una verdad cruel 
+https://www.youtube.com/watch?v=xX4qCM5sN5s
 
-Supernafamacho ft. Mushikko - Trioleros espaciales https://www.youtube.com/watch?v=5zcY_jJolcs
+Supernafamacho - Vamos a volar 
+https://www.youtube.com/watch?v=E6W6UnNWfv8
 
-Lady Yaco ft. Supernafamacho - Libre https://www.youtube.com/watch?v=JoX8c51qeyE
+Supernafamacho ft. Mushikko - Trioleros espaciales 
+https://www.youtube.com/watch?v=5zcY_jJolcs
 
-Supernafamacho - Hablan de mí https://www.youtube.com/watch?v=aw0_8dseLzg
+Lady Yaco ft. Supernafamacho - Libre 
+https://www.youtube.com/watch?v=JoX8c51qeyE
 
-Supernafamacho - Tranquilo https://www.youtube.com/watch?v=2xLRutJJcBE
+Supernafamacho - Hablan de mí 
+https://www.youtube.com/watch?v=aw0_8dseLzg
+
+Supernafamacho - Tranquilo 
+https://www.youtube.com/watch?v=2xLRutJJcBE
 
 Jesuly - Días https://www.youtube.com/watch?v=rJdGVzPnqTw
 
@@ -257,6 +273,9 @@ https://www.youtube.com/watch?v=_O36lno6EmU
 
 50 cent - Many men
 https://www.youtube.com/watch?v=5D3crqpClPY
+
+50 cent - If I can't 
+https://www.youtube.com/watch?v=EowpnVeh8i8
 
 Spanish Fly - Mi corazón me marca el camino
 https://www.youtube.com/watch?v=87prpH6oImQ

@@ -143,7 +143,7 @@ Tools:
 
 - You won't see me outside Spain, cause I haven't Tobby-pass.
 
-- The origin of the cobi was a pangolin that Orson Wells ate.
+- The origin of the cobi was a pangolin that Orson Welles ate.
 
 - Schodringer's cat only is alive if you don't open the box.
 

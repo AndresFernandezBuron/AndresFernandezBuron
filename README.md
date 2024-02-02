@@ -30,6 +30,8 @@ un desarrollador de España.
 Las políticas totalitarias e ilegales covid han traído muchos cambios a mi vida.
     
 Estoy buscando trabajo en remoto en español, porque requiero dinero y estar lejos de cualquier institución de estado.
+
+Voy a liberar algunos de mis proyectos, porque la mano de Adam Smith sufre el efecto Duning-Kruger.
     
 <br>
     
@@ -49,6 +51,8 @@ Totalitarian and illegal covid policies have brought many changes to my life.
 I'm looking for a remote job in Spanish, because I need money I want to stay away from any state institution.
     
 <br>
+
+I'm going to release some of my projects, because Adam Smith's hand suffers from the Duning-Kruger effect.
     
 </td></tr>
 <tr><td align="center" valign="middle" colspan="2">
@@ -153,6 +157,10 @@ Tools:
 
 - I can know how the job market is for a developer, looking at how many people have applied for a crap job.
 
+- If Human Resources are Duning-Kruger, I don't want to imagine the rest.
+
+- I have come to the conclusion that the technology sector does not exist beyond contracts and public money.
+
 - I have principles, and if you don't like them, you should hire Groucho Marx.
 
 - A frame of Charlie Chaplin is worth more than a thousand words.
@@ -166,6 +174,20 @@ Tools:
 - I'm stupid and I don't like that, cause I'm smarter than the rest.
 
 - I believe that the Martians don't come to the Earth, cause they haven't found intelligent life yet.
+
+- When I hear someone say that human beings are intelligent, I think: another fool.
+
+- Today the only intelligence is the word spoken when talking about AI.
+
+- The only requirement to think that an AI has intelligence is to not have intelligence.
+
+- I have been saying for years that it's materially impossible to create intelligence, and the only one that has proven me right is an AI.
+
+- The previous point would seem paradoxical to me, if I didn't know that the only way for an AI to be more intelligent than a human is for the human not to use its brain.
+
+- Once upon a time there was a kingdom in which the most intelligent was the king, because he would cut off the head of anyone who had more than two neurons.
+
+- Thanks, but I don't want an IQ of 33.
 
 - During each question on an intelligence test, they told me: Do it, at least try it. And I answered: I've already finished it.
 

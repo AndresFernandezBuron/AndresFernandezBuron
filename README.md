@@ -143,7 +143,9 @@ Tools:
 
 - You won't see me outside Spain, cause I haven't Tobby-pass.
 
-- I only eat food, if I expend energy.
+- The origin of the cobi was a pangolin that Orson Wells ate.
+
+- Schodringer's cat only is alive if you don't open the box.
 
 - I don't go with the flow, cause I'm not a dead fish.
 
@@ -159,7 +161,7 @@ Tools:
 
 - If Human Resources are Duning-Kruger, I don't want to imagine the rest.
 
-- I have come to the conclusion that the technology sector does not exist beyond contracts and public money.
+- I have come to the conclusion that the technology sector doesn't exist beyond public contracts and money.
 
 - I have principles, and if you don't like them, you should hire Groucho Marx.
 
@@ -169,13 +171,13 @@ Tools:
 
 - Math says you can only love me if you love yourself.
 
-- I love Hip-Hop culture, so I don't know who the rappers you know are.
+- I love Hip-Hop culture, so I don't know who are the rappers you know.
 
 - I'm stupid and I don't like that, cause I'm smarter than the rest.
 
 - I believe that the Martians don't come to the Earth, cause they haven't found intelligent life yet.
 
-- When I hear someone say that human beings are intelligent, I think: another fool.
+- When I hear someone say that human are intelligent, I think: another fool.
 
 - Today the only intelligence is the word spoken when talking about AI.
 

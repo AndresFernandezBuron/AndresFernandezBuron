@@ -287,6 +287,11 @@ Jesuly - Días  https://www.youtube.com/watch?v=rJdGVzPnqTw
 
 50 cent - If I can't  https://www.youtube.com/watch?v=EowpnVeh8i8
 
+50 cent ft Eminem - Patiently waiting  https://m.youtube.com/watch?v=IQUvH2z1iEU&pp=ygURNTAgY2VudCBwYXRpZW50bHk%3D
+
+50 cent - Get the message https://m.youtube.com/watch?v=-pdN2RZ35_c&pp=ygUTNTAgY2VudCB0aGUgbWVzc2FnZQ%3D%3D
+
+
 Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
 
 Cosulluela ft. John Jay - Si te me pegas https://www.youtube.com/watch?v=9BfjvuYLBeU

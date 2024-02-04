@@ -141,19 +141,23 @@ Tools:
 
 - I'm vaccinated against idiocracy.
 
+- I don't go with the flow, cause I'm not a dead fish.
+
 - You won't see me outside Spain, cause I haven't Tobby-pass.
 
 - The origin of the cobi was a pangolin that Orson Welles ate.
 
 - Schodringer's cat only is alive if you don't open the box.
 
-- I don't go with the flow, cause I'm not a dead fish.
-
 - What I hate about the truth, is that often people love lies.
 
 - I no longer trust in the creator, cause perfection wouldn't have created stupidity and stupid evil.
 
 - The only people I admire and would follow are Jesus and Viriato.
+
+- SEO has killed access to quality information.
+
+- Marie Antoinette, if there are no bakers, create pastry shops.
 
 - Sometimes I search IT job offers, to laugh reading them.
 
@@ -186,8 +190,14 @@ Tools:
 - I have been saying for years that it's materially impossible to create intelligence, and the only one that has proven me right is an AI.
 
 - The previous point would seem paradoxical to me, if I didn't know that the only way for an AI to be more intelligent than a human is for the human not to use its brain.
+  
+- And then a boy pointed and shouted: The AI ​​is naked.
 
 - Once upon a time there was a kingdom in which the most intelligent was the king, because he would cut off the head of anyone who had more than two neurons.
+
+- Once upon a time a fool adk to a wise man: If you are so intelligent, why don't you succeed?
+Because my reference is Jesus, not Herod or Pilate.
+And that's how the fool continued without understanding anything.
 
 - Thanks, but I don't want an IQ of 33.
 

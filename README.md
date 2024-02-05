@@ -305,6 +305,8 @@ Jesuly - Días  https://www.youtube.com/watch?v=rJdGVzPnqTw
 
 Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
 
+John Jay - Vengo potente - https://m.youtube.com/watch?v=CPwZtAg1S_Q
+
 Cosulluela ft. John Jay - Si te me pegas https://www.youtube.com/watch?v=9BfjvuYLBeU
 
 7 Notas 7 Colores - 800 https://www.youtube.com/watch?v=SbsiuQiVRho

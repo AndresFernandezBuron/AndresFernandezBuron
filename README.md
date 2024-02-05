@@ -147,6 +147,10 @@ Tools:
 
 - The origin of the cobi was a pangolin that Orson Welles ate.
 
+- justice has kidnapped Justice
+
+- The police want to fine you to collect a commission, like cold door salesmen, so you don't have to worry too much about common thieves, unless they also receive it.
+
 - Schodringer's cat only is alive if you don't open the box.
 
 - What I hate about the truth, is that often people love lies.

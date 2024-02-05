@@ -262,6 +262,8 @@ Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5
 Sois muchos y yo solo uno, pero os pulo. <br>
 Los jondo - Miss raperitos shungos - https://m.youtube.com/watch?v=pDIBaoWfh-Q&pp=ygUYbG9zIGpvbmRvIHR1IG1lIGxhIHNodXBh
 
+Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
+ 
 Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
 
 Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE

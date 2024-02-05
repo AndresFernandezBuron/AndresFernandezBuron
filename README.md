@@ -280,6 +280,12 @@ Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ
 
 Chinatown - Lo bueno y lo malo  https://www.youtube.com/watch?v=B0NPaSTmOm
 
+Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp=ygUrcG9ldGEgY2FsbGVqZXJvIHAuby5lLnQuYSBjLmEubC5sLmUuai5lLnIubw%3D%3D
+
+Tres coronas - A criticarme - https://m.youtube.com/watch?v=xNlNE7nLfcY
+
+Tres coronas - Vamos a jugar - https://m.youtube.com/watch?v=OZfrjkSUrBk&pp=ygUMdHJlcyBjb3JvbmFz
+
 Capaz - Una verdad cruel  https://www.youtube.com/watch?v=xX4qCM5sN5s
 
 Supernafamacho - Vamos a volar  https://www.youtube.com/watch?v=E6W6UnNWfv8

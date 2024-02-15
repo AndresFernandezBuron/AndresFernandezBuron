@@ -259,13 +259,8 @@ Notorius BIG - Juicy https://www.youtube.com/watch?v=_JZom_gVfuw
 
 Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5uOQ
 
-Sois muchos y yo solo uno, pero os pulo. <br>
-Los jondo - Miss raperitos shungos - https://m.youtube.com/watch?v=pDIBaoWfh-Q&pp=ygUYbG9zIGpvbmRvIHR1IG1lIGxhIHNodXBh
+Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp=ygUrcG9ldGEgY2FsbGVqZXJvIHAuby5lLnQuYSBjLmEubC5sLmUuai5lLnIubw%3D%3D
 
-Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
-
-John Jay - La gente mala - https://m.youtube.com/watch?v=lFtOaUV62SA&pp=ygUTam9obiBqYXkgZ2VudGUgbWFsYQ%3D%3D
- 
 Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
 
 Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE
@@ -280,12 +275,8 @@ Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ
 
 Chinatown - Lo bueno y lo malo  https://www.youtube.com/watch?v=B0NPaSTmOm
 
-Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp=ygUrcG9ldGEgY2FsbGVqZXJvIHAuby5lLnQuYSBjLmEubC5sLmUuai5lLnIubw%3D%3D
-
-Tres coronas - A criticarme - https://m.youtube.com/watch?v=xNlNE7nLfcY
-
-Tres coronas - Vamos a jugar - https://m.youtube.com/watch?v=OZfrjkSUrBk&pp=ygUMdHJlcyBjb3JvbmFz
-
+Los jondo - Miss raperitos shungos - https://m.youtube.com/watch?v=pDIBaoWfh-Q&pp=ygUYbG9zIGpvbmRvIHR1IG1lIGxhIHNodXBh
+ 
 Capaz - Una verdad cruel  https://www.youtube.com/watch?v=xX4qCM5sN5s
 
 Supernafamacho - Vamos a volar  https://www.youtube.com/watch?v=E6W6UnNWfv8
@@ -298,32 +289,25 @@ Supernafamacho - Hablan de mí  https://www.youtube.com/watch?v=aw0_8dseLzg
 
 Jesuly - Días  https://www.youtube.com/watch?v=rJdGVzPnqTw
 
-50 cent - God gave me style https://www.youtube.com/watch?v=_O36lno6EmU
-
-50 cent - Many men https://www.youtube.com/watch?v=5D3crqpClPY
-
-50 cent - If I can't  https://www.youtube.com/watch?v=EowpnVeh8i8
-
-50 cent ft Eminem - Patiently waiting  https://m.youtube.com/watch?v=IQUvH2z1iEU&pp=ygURNTAgY2VudCBwYXRpZW50bHk%3D
-
-50 cent - Get the message https://m.youtube.com/watch?v=-pdN2RZ35_c&pp=ygUTNTAgY2VudCB0aGUgbWVzc2FnZQ%3D%3D
-
-
-Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
-
-John Jay - Vengo potente - https://m.youtube.com/watch?v=CPwZtAg1S_Q
-
-Cosulluela ft. John Jay - Si te me pegas https://www.youtube.com/watch?v=9BfjvuYLBeU
-
 7 Notas 7 Colores - 800 https://www.youtube.com/watch?v=SbsiuQiVRho
 
 Mucho muchacho - Gasto mis días https://www.youtube.com/watch?v=MeVWN0oE7wA
 
+Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
+
+Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
+
+Tres coronas - A criticarme - https://m.youtube.com/watch?v=xNlNE7nLfcY
+
+Tres coronas - Vamos a jugar - https://m.youtube.com/watch?v=OZfrjkSUrBk&pp=ygUMdHJlcyBjb3JvbmFz
+
+John Jay - La gente mala - https://m.youtube.com/watch?v=lFtOaUV62SA&pp=ygUTam9obiBqYXkgZ2VudGUgbWFsYQ%3D%3D
+
+John Jay - Vengo potente - https://m.youtube.com/watch?v=CPwZtAg1S_Q
+
 J Álvarez - On top of da world https://www.youtube.com/watch?v=ONP7HnxKPUY
 
 J Alvarez - La Fama Que Camina https://www.youtube.com/watch?v=KFZz8XjfP88
-
-Cecilio G - Million dollar baby https://www.youtube.com/watch?v=Ym59_2x6zgU
 
 </td></tr>
 

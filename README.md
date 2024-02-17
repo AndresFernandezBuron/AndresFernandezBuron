@@ -261,6 +261,8 @@ Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5
 
 Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp=ygUrcG9ldGEgY2FsbGVqZXJvIHAuby5lLnQuYSBjLmEubC5sLmUuai5lLnIubw%3D%3D
 
+La puta OPP - No mass media - https://www.youtube.com/watch?v=OWPmE9Jir4U&pp=ygUQTGEgcHV0YSBPUFAgbWFzcw%3D%3D
+
 Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
 
 Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE
@@ -299,7 +301,7 @@ Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG
 
 Tres coronas - A criticarme - https://m.youtube.com/watch?v=xNlNE7nLfcY
 
-Tres coronas - Vamos a jugar - https://m.youtube.com/watch?v=OZfrjkSUrBk&pp=ygUMdHJlcyBjb3JvbmFz
+Tres coronas ft Kafu banton - Vamos a jugar - https://m.youtube.com/watch?v=OZfrjkSUrBk&pp=ygUMdHJlcyBjb3JvbmFz
 
 John Jay - La gente mala - https://m.youtube.com/watch?v=lFtOaUV62SA&pp=ygUTam9obiBqYXkgZ2VudGUgbWFsYQ%3D%3D
 

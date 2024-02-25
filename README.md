@@ -261,6 +261,8 @@ Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5
 
 Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp=ygUrcG9ldGEgY2FsbGVqZXJvIHAuby5lLnQuYSBjLmEubC5sLmUuai5lLnIubw%3D%3D
 
+Calle 13 - Los idiotas - https://m.youtube.com/watch?v=RJBqtLe3d5k&pp=ygUQY2FsbGUgMTMgaWRpb3Rhcw%3D%3D
+
 La puta OPP - No mass media - https://www.youtube.com/watch?v=OWPmE9Jir4U&pp=ygUQTGEgcHV0YSBPUFAgbWFzcw%3D%3D
 
 Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
@@ -297,7 +299,13 @@ Mucho muchacho - Gasto mis días https://www.youtube.com/watch?v=MeVWN0oE7wA
 
 Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
 
+Primer Dan - Cara - https://m.youtube.com/watch?v=Pny5R32ZB4Y&pp=ygUPcHJpbWVyIGRhbiBjYXJh
+
 Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
+
+J Álvarez - On top of da world https://www.youtube.com/watch?v=ONP7HnxKPUY
+
+J Alvarez - La Fama Que Camina https://www.youtube.com/watch?v=KFZz8XjfP88
 
 Tres coronas - A criticarme - https://m.youtube.com/watch?v=xNlNE7nLfcY
 
@@ -307,9 +315,13 @@ John Jay - La gente mala - https://m.youtube.com/watch?v=lFtOaUV62SA&pp=ygUTam9o
 
 John Jay - Vengo potente - https://m.youtube.com/watch?v=CPwZtAg1S_Q
 
-J Álvarez - On top of da world https://www.youtube.com/watch?v=ONP7HnxKPUY
+Kendo Kaponi - La envidia remix - https://m.youtube.com/watch?v=fhzVkowYgcU&pp=ygUaa2VuZG8ga2Fwb25pIGVudmlkaWEgcmVtaXg%3D
 
-J Alvarez - La Fama Que Camina https://www.youtube.com/watch?v=KFZz8XjfP88
+Kendo Kaponi - Helicóptero - https://m.youtube.com/watch?v=mAqERGyKQkw&pp=ygUYa2VuZG8ga2Fwb25pIGhlbGljb3B0ZXJv
+
+Kendo Kaponi - Moriran - https://m.youtube.com/watch?v=Zq-K2AvkaiU&pp=ygUUa2VuZG8ga2Fwb25pIG1vcmlyYW4%3D
+
+Kendo Kaponi ft Wibal y Alex - Sin miedo a morir - https://m.youtube.com/watch?v=Te5X1VKdRgQ&pp=ygUWa2VuZG8ga2Fwb25pIHNpbiBtaWVkbw%3D%3D
 
 </td></tr>
 

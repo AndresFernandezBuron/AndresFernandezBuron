@@ -265,6 +265,10 @@ Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
 Los chunguitos - COBARDE - https://m.youtube.com/watch?v=Fgcu5ZcRbFk&pp=ygUXxLlvcyBjaHVuZ3VpdG9zIGNvYmFyZGU%3D
 
+Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
+
+Don Omar - Cara a cara - https://m.youtube.com/watch?v=fgf1WEYsqu8&pp=ygUURG9uIE9tYXIgQ2FyYSBhIGNhcmE%3D
+
 2 Pac ft. Scarface - Smile https://www.youtube.com/watch?v=RhG-0Ei0Qxk
 
 2 Pac - Keep ya head up https://www.youtube.com/watch?v=SHVzWMFMH6Y
@@ -278,10 +282,6 @@ Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5
 Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp=ygUrcG9ldGEgY2FsbGVqZXJvIHAuby5lLnQuYSBjLmEubC5sLmUuai5lLnIubw%3D%3D
 
 Calle 13 - Los idiotas - https://m.youtube.com/watch?v=RJBqtLe3d5k&pp=ygUQY2FsbGUgMTMgaWRpb3Rhcw%3D%3D
-
-Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
-
-Don Omar - Cara a cara - https://m.youtube.com/watch?v=fgf1WEYsqu8&pp=ygUURG9uIE9tYXIgQ2FyYSBhIGNhcmE%3D
 
 La puta OPP - No mass media - https://www.youtube.com/watch?v=OWPmE9Jir4U&pp=ygUQTGEgcHV0YSBPUFAgbWFzcw%3D%3D
 

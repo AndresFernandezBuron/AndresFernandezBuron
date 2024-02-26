@@ -263,6 +263,10 @@ Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp
 
 Calle 13 - Los idiotas - https://m.youtube.com/watch?v=RJBqtLe3d5k&pp=ygUQY2FsbGUgMTMgaWRpb3Rhcw%3D%3D
 
+Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
+
+Don Omar - Cara a cara - https://m.youtube.com/watch?v=fgf1WEYsqu8&pp=ygUURG9uIE9tYXIgQ2FyYSBhIGNhcmE%3D
+
 La puta OPP - No mass media - https://www.youtube.com/watch?v=OWPmE9Jir4U&pp=ygUQTGEgcHV0YSBPUFAgbWFzcw%3D%3D
 
 Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
@@ -300,8 +304,6 @@ Mucho muchacho - Gasto mis días https://www.youtube.com/watch?v=MeVWN0oE7wA
 Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
 
 Primer Dan - Cara - https://m.youtube.com/watch?v=Pny5R32ZB4Y&pp=ygUPcHJpbWVyIGRhbiBjYXJh
-
-Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
 
 J Álvarez - On top of da world https://www.youtube.com/watch?v=ONP7HnxKPUY
 

@@ -153,6 +153,8 @@ Tools:
 
 - Schodringer's cat only is alive if you don't open the box.
 
+- There are people who say that we live in a simulation. But they are only simulated intelligences.
+
 - What I hate about the truth, is that often people love lies.
 
 - I no longer trust in the creator, cause perfection wouldn't have created stupidity and stupid evil.
@@ -176,6 +178,8 @@ Tools:
 - A frame of Charlie Chaplin is worth more than a thousand words.
 
 - The American I like best is Cantinflas.
+
+- I would never be in a group in which there are people who need to be in a group.
 
 - Math says you can only love me if you love yourself.
 
@@ -204,6 +208,16 @@ Because my reference is Jesus, not Herod or Pilate.
 And that's how the fool continued without understanding anything.
 
 - Thanks, but I don't want an IQ of 33.
+
+- The only way for me to enter a secret club with secret gestures would be to have the intellect of a small child.
+  
+- How many illuminati does it take to invent something?
+100 to find out that someone has invented it.
+100 to sink the inventor and another 100 to rob him.
+Another 100 to create a narrative.
+And 100,000 to believe it.
+
+- You have to be stupid to join a group that is dedicated to lying and scamming people, while they tell you that "as above, so below."
 
 - During each question on an intelligence test, they told me: Do it, at least try it. And I answered: I've already finished it.
 
@@ -248,6 +262,8 @@ for(;;)
 <tr><td colspan="2">
 
 Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
+
+Los chunguitos - COBARDE - https://m.youtube.com/watch?v=Fgcu5ZcRbFk&pp=ygUXxLlvcyBjaHVuZ3VpdG9zIGNvYmFyZGU%3D
 
 2 Pac ft. Scarface - Smile https://www.youtube.com/watch?v=RhG-0Ei0Qxk
 

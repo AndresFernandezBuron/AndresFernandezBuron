@@ -265,6 +265,8 @@ Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
 Los chunguitos - COBARDE - https://m.youtube.com/watch?v=Fgcu5ZcRbFk&pp=ygUXxLlvcyBjaHVuZ3VpdG9zIGNvYmFyZGU%3D
 
+Hablando en plata & Picos pardos - CULPABLES - https://m.youtube.com/watch?v=xqZwMjP6zGQ&pp=ygUeaGFibGFuZG8gZW4gcGxhdGEgcGljb3MgcGFyZG9z
+
 Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
 
 Don Omar - Cara a cara - https://m.youtube.com/watch?v=fgf1WEYsqu8&pp=ygUURG9uIE9tYXIgQ2FyYSBhIGNhcmE%3D
@@ -318,8 +320,6 @@ Jesuly - Días  https://www.youtube.com/watch?v=rJdGVzPnqTw
 Mucho muchacho - Gasto mis días https://www.youtube.com/watch?v=MeVWN0oE7wA
 
 Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
-
-Hablando en plata & Picos pardos - Culpable - https://m.youtube.com/watch?v=xqZwMjP6zGQ&pp=ygUeaGFibGFuZG8gZW4gcGxhdGEgcGljb3MgcGFyZG9z
 
 Primer Dan - Cara - https://m.youtube.com/watch?v=Pny5R32ZB4Y&pp=ygUPcHJpbWVyIGRhbiBjYXJh
 

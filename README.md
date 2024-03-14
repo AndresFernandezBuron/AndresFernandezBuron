@@ -319,6 +319,8 @@ Mucho muchacho - Gasto mis días https://www.youtube.com/watch?v=MeVWN0oE7wA
 
 Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
 
+Hablando en plata & Picos pardos - Culpable - https://m.youtube.com/watch?v=xqZwMjP6zGQ&pp=ygUeaGFibGFuZG8gZW4gcGxhdGEgcGljb3MgcGFyZG9z
+
 Primer Dan - Cara - https://m.youtube.com/watch?v=Pny5R32ZB4Y&pp=ygUPcHJpbWVyIGRhbiBjYXJh
 
 J Álvarez - On top of da world https://www.youtube.com/watch?v=ONP7HnxKPUY
@@ -332,6 +334,8 @@ Tres coronas ft Kafu banton - Vamos a jugar - https://m.youtube.com/watch?v=OZfr
 John Jay - La gente mala - https://m.youtube.com/watch?v=lFtOaUV62SA&pp=ygUTam9obiBqYXkgZ2VudGUgbWFsYQ%3D%3D
 
 John Jay - Vengo potente - https://m.youtube.com/watch?v=CPwZtAg1S_Q
+
+Snoop dogg & Dre - Deep cover - https://m.youtube.com/watch?v=uo3rZjJB1hY&pp=ygUUc25vb3AgZG9nIHVuZGVyY292ZXI%3D
 
 Kendo Kaponi - La envidia remix - https://m.youtube.com/watch?v=fhzVkowYgcU&pp=ygUaa2VuZG8ga2Fwb25pIGVudmlkaWEgcmVtaXg%3D
 

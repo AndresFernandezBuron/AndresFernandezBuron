@@ -269,9 +269,9 @@ Hablando en plata & Picos pardos - CULPABLES - https://m.youtube.com/watch?v=xqZ
 
 Tres coronas - Instinto animal - https://m.youtube.com/watch?v=puUwXGjMJxc&pp=ygUVdHJlcyBjb3JvbmFzIGluc3RpbnRv
 
-Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
+Kendo Kaponi - Ready - https://m.youtube.com/watch?v=kXqNyUkbjA8
 
-Kendo kaponi & Pacho - Sacamostro - https://m.youtube.com/watch?v=ZtJsRv0ZxSU&pp=ygUKc2FrYW1vc3Rybw%3D%3D
+Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
 
 Don Omar - Cara a cara - https://m.youtube.com/watch?v=fgf1WEYsqu8&pp=ygUURG9uIE9tYXIgQ2FyYSBhIGNhcmE%3D
 

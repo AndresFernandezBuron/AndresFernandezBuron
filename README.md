@@ -263,93 +263,11 @@ for(;;)
 
 Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
-Los chunguitos - COBARDE - https://m.youtube.com/watch?v=Fgcu5ZcRbFk&pp=ygUXxLlvcyBjaHVuZ3VpdG9zIGNvYmFyZGU%3D
+Chinatown - Mis armas - https://www.youtube.com/watch?v=KVqOHgZBWWQ
 
-Hablando en plata & Picos pardos - CULPABLES - https://m.youtube.com/watch?v=xqZwMjP6zGQ&pp=ygUeaGFibGFuZG8gZW4gcGxhdGEgcGljb3MgcGFyZG9z
+Yamal ft Mtitiko - Lo siento por ti - https://www.youtube.com/watch?v=zwAEP2suwHE
 
-Priteo - HH - https://m.youtube.com/watch?v=R7a4xG5rbbU&pp=ygUJcHJpdGVvIGho
-
-Tres coronas - Instinto animal - https://m.youtube.com/watch?v=puUwXGjMJxc&pp=ygUVdHJlcyBjb3JvbmFzIGluc3RpbnRv
-
-Kendo Kaponi - Ready - https://m.youtube.com/watch?v=kXqNyUkbjA8
-
-Don Omar - Repórtense - https://m.youtube.com/watch?v=5q4Xz2pSEsw&pp=ygUTZG9uIG9tYXIgcmVwb3J0ZW5zZQ%3D%3D
-
-Don Omar - Cara a cara - https://m.youtube.com/watch?v=fgf1WEYsqu8&pp=ygUURG9uIE9tYXIgQ2FyYSBhIGNhcmE%3D
-
-2 Pac ft. Scarface - Smile https://www.youtube.com/watch?v=RhG-0Ei0Qxk
-
-2 Pac - Keep ya head up https://www.youtube.com/watch?v=SHVzWMFMH6Y
-
-KRS one - Tek Nology https://www.youtube.com/watch?v=u8-ZJAJOlY8
-
-Notorius BIG - Juicy https://www.youtube.com/watch?v=_JZom_gVfuw
-
-Vico C - Pregúntale a tu papá por mí https://www.youtube.com/watch?v=bZ5hZMc5uOQ
-
-Poeta callejero - POETA CALLEJERO - https://m.youtube.com/watch?v=mH2NLGOmQgk&pp=ygUrcG9ldGEgY2FsbGVqZXJvIHAuby5lLnQuYSBjLmEubC5sLmUuai5lLnIubw%3D%3D
-
-Calle 13 - Los idiotas - https://m.youtube.com/watch?v=RJBqtLe3d5k&pp=ygUQY2FsbGUgMTMgaWRpb3Rhcw%3D%3D
-
-La puta OPP - No mass media - https://www.youtube.com/watch?v=OWPmE9Jir4U&pp=ygUQTGEgcHV0YSBPUFAgbWFzcw%3D%3D
-
-Chinatown - Domino https://www.youtube.com/watch?v=C2agsVZISGM
-
-Chinatown - Cria cuervos https://www.youtube.com/watch?v=6amc3C2EbYE
-
-Chinatown - Me lo copian todo (liquida) https://www.youtube.com/watch?v=BTrDvga6iLs
-
-Ganda - Me lo copian todo (parte 2) https://www.youtube.com/watch?v=EBo8PL6k47c
-
-Chinatown - De más y de menos https://www.youtube.com/watch?v=2xQ6LrmGhaU
-
-Chinatown - Todo perdido https://www.youtube.com/watch?v=YCv3KTTsCzQ
-
-Chinatown - Lo bueno y lo malo  https://www.youtube.com/watch?v=B0NPaSTmOm
-
-Los jondo - Miss raperitos shungos - https://m.youtube.com/watch?v=pDIBaoWfh-Q&pp=ygUYbG9zIGpvbmRvIHR1IG1lIGxhIHNodXBh
- 
-Capaz - Una verdad cruel  https://www.youtube.com/watch?v=xX4qCM5sN5s
-
-Supernafamacho - Vamos a volar  https://www.youtube.com/watch?v=E6W6UnNWfv8
-
-Supernafamacho ft. Mushikko - Trileros espaciales  https://www.youtube.com/watch?v=5zcY_jJolcs
-
-Lady Yaco ft. Supernafamacho - Libre  https://www.youtube.com/watch?v=JoX8c51qeyE
-
-Supernafamacho - Hablan de mí  https://www.youtube.com/watch?v=aw0_8dseLzg
-
-Jesuly - Días  https://www.youtube.com/watch?v=rJdGVzPnqTw
-
-7 Notas 7 Colores - 800 https://www.youtube.com/watch?v=SbsiuQiVRho
-
-Mucho muchacho - Gasto mis días https://www.youtube.com/watch?v=MeVWN0oE7wA
-
-Spanish Fly - Mi corazón me marca el camino https://www.youtube.com/watch?v=87prpH6oImQ
-
-Primer Dan - Cara - https://m.youtube.com/watch?v=Pny5R32ZB4Y&pp=ygUPcHJpbWVyIGRhbiBjYXJh
-
-J Álvarez - On top of da world https://www.youtube.com/watch?v=ONP7HnxKPUY
-
-J Alvarez - La Fama Que Camina https://www.youtube.com/watch?v=KFZz8XjfP88
-
-Tres coronas - A criticarme - https://m.youtube.com/watch?v=xNlNE7nLfcY
-
-Tres coronas ft Kafu banton - Vamos a jugar - https://m.youtube.com/watch?v=OZfrjkSUrBk&pp=ygUMdHJlcyBjb3JvbmFz
-
-John Jay - La gente mala - https://m.youtube.com/watch?v=lFtOaUV62SA&pp=ygUTam9obiBqYXkgZ2VudGUgbWFsYQ%3D%3D
-
-John Jay - Vengo potente - https://m.youtube.com/watch?v=CPwZtAg1S_Q
-
-Snoop dogg & Dre - Deep cover - https://m.youtube.com/watch?v=uo3rZjJB1hY&pp=ygUUc25vb3AgZG9nIHVuZGVyY292ZXI%3D
-
-Kendo Kaponi - La envidia remix - https://m.youtube.com/watch?v=fhzVkowYgcU&pp=ygUaa2VuZG8ga2Fwb25pIGVudmlkaWEgcmVtaXg%3D
-
-Kendo Kaponi - Helicóptero - https://m.youtube.com/watch?v=mAqERGyKQkw&pp=ygUYa2VuZG8ga2Fwb25pIGhlbGljb3B0ZXJv
-
-Kendo Kaponi - Moriran - https://m.youtube.com/watch?v=Zq-K2AvkaiU&pp=ygUUa2VuZG8ga2Fwb25pIG1vcmlyYW4%3D
-
-Kendo Kaponi ft Wibal y Alex - Sin miedo a morir - https://m.youtube.com/watch?v=Te5X1VKdRgQ&pp=ygUWa2VuZG8ga2Fwb25pIHNpbiBtaWVkbw%3D%3D
+Beastie boys - Sabotage - https://www.youtube.com/watch?v=z5rRZdiu1UE
 
 </td></tr>
 

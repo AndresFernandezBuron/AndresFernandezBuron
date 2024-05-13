@@ -64,7 +64,7 @@ I'm going to release some of my projects, because Adam Smith's hand suffers from
 - El estado es la raíz de todos los problemas sociales, y por ende el mayor problema social.
 
 - El estado aliena la economía, la justicia y el pensamiento.
-Y no solo no promueve el desarrollo de estos ámbitos inherentes a la vida, derechos y felicidad humanas, si no que es garante de la precariedad de las mismas.
+Y no solo no promueve el desarrollo de estos ámbitos inherentes a la vida, derechos y felicidad humanas, si no que es garante y beneficiario de su precariedad.
 
 - El estado no solo no produce un céntimo, si no que el 100% de lo que consume, lo aliena de ecónomías individuales.
 De las cuáles, un gran porcentaje necesita ese dinero que se le sustrae.
@@ -80,6 +80,7 @@ Y una abstención mayor del 50%, debería disolver también las instituciones.
 
 Nota:
 Si te pica, pide la réplica de ocho tomos.
+
 </td>
 <tr><td align="center" valign="middle" colspan="2">
 

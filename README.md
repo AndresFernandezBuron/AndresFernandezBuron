@@ -61,13 +61,18 @@ I'm going to release some of my projects, because Adam Smith's hand suffers from
 **Críticas de alguien inteligente al estado:**
 </td></tr><td>
 	
-- El estado es la raíz de todos los problemas sociales, y por ende el mayor problema social.
+- El estado es la raíz de todos los problemas sociales, y por ende, es el mayor problema social.
 
 - El estado aliena la economía, la justicia y el pensamiento.
-Y no solo no promueve el desarrollo de estos ámbitos inherentes a la vida, derechos y felicidad humanas, si no que es garante y beneficiario de su precariedad.
+No solo no promueve eficazmente el desarrollo de dichos ámbitos inherentes a la vida, derechos y felicidad humanas, si no que es garante y beneficiario de su precariedad.
 
-- El estado no solo no produce un céntimo, si no que el 100% de lo que consume, lo aliena de ecónomías individuales.
-De las cuáles, un gran porcentaje necesita ese dinero que se le sustrae.
+- Economía, justicia y pensamiento:
+Cuánta más desigualdad económica, más pobres a los que oprimir.
+Cuánta mayor injusticia, más poderosos impunes.
+Cuántos más ignorantes, más alienables y más votantes.
+
+- El estado no solo no produce un céntimo, si no que el 100% de lo que consume, lo aliena de economías individuales.
+De las cuáles, un gran porcentaje necesita ese dinero que se le sustrae para derrochar.
 
 - En el estado no trabaja nadie que tenga vocación o buenos valores morales. Y si lo hubiera, tendría que irse él, o dichos valores.
 
@@ -297,6 +302,30 @@ Yamal ft Mtitiko - Lo siento por ti - https://www.youtube.com/watch?v=zwAEP2suwH
 Mitko y dj Uve - Coge las maletas - https://www.youtube.com/watch?v=mL19kZAXn4M&pp=ygUXbWl0aWtvIGNvZ2UgbGFzIG1hbGV0YXM%3D
 
 Beastie boys - Sabotage - https://www.youtube.com/watch?v=z5rRZdiu1UE
+
+V.K.R - La peña va de digna -
+
+Chulito Camacho - Lo único seguro - 
+
+Chulito Camacho - Cómo funciona el mundo - 
+
+Chulito Camacho - Cuánto más bueno - 
+
+Cypress Hill - Can't get the best of me - 
+
+Cypress Hill - Tu no ajuanta - 
+
+Cypress Hill - Muévete - 
+
+Cypress Hill - No pierdo nada - 
+
+Calle 13 - Querido fbi - 
+
+Public enemy - Fight the power - 
+
+N.W.A - Fuck the police - 
+
+Ice Cube - Wicked - 
 
 </td></tr>
 

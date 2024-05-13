@@ -59,7 +59,8 @@ I'm going to release some of my projects, because Adam Smith's hand suffers from
 <tr><td align="center" valign="middle" colspan="2">
 
 **Críticas de alguien inteligente al estado:**
-</td></tr><td>
+</td></tr>
+<td valign="middle" colspan="2">
 	
 - El estado es la raíz de todos los problemas sociales, y por ende, es el mayor problema social.
 

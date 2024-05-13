@@ -55,6 +55,31 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 I'm going to release some of my projects, because Adam Smith's hand suffers from the Duning-Kruger effect.
     
 </td></tr>
+</td></tr>
+<tr><td align="center" valign="middle" colspan="2">
+
+**Críticas de alguien inteligente al estado:**
+</td></tr><td>
+- El estado es la raíz de todos los problemas sociales, y por ende el mayor problema social.
+
+- El estado aliena la economía, la justicia y el pensamiento.
+Y no solo no promueve el desarrollo de estos ámbitos inherentes a la vida, derechos y felicidad humanas, si no que es garante de la precariedad de las mismas.
+
+- El estado no solo no produce un céntimo, si no que el 100% de lo que consume, lo aliena de ecónomías individuales.
+De las cuáles, un gran porcentaje necesita ese dinero que se le sustrae.
+
+- En el estado no trabaja nadie que tenga vocación o buenos valores morales. Y si lo hubiera, tendría que irse él, o dichos valores.
+
+- Un estado formado por gente sin vocación ha de ser desmantelado.
+
+- La abstención en los procesos electivos es reflejo del descontento social con el estado, hasta el punto de no votar ninguna opción.
+
+- Una abstención mayoritaria debería disolver autómaticamente el gobierno.
+Y una abstención mayor del 50%, debería disolver también las instituciones.
+
+Nota:
+Si te pica, pide la réplica de ocho tomos.
+</td>
 <tr><td align="center" valign="middle" colspan="2">
 
 **Used languages and tools:**

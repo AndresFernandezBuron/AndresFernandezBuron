@@ -81,7 +81,7 @@ De las cuáles, un gran porcentaje necesita ese dinero que se le sustrae para de
 
 - La abstención en los procesos electivos es reflejo del descontento social con el estado, hasta el punto de no votar ninguna opción.
 
-- Una abstención mayoritaria debería disolver autómaticamente el gobierno.
+- Una abstención mayoritaria debería disolver autómaticamente el gobierno y reconvocar elecciones.
 Y una abstención mayor del 50%, debería disolver también las instituciones.
 
 Nota:
@@ -295,6 +295,14 @@ for(;;)
 <tr><td colspan="2">
 
 Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
+
+Priteo y Dj Yata - Clases de disciplina - https://www.youtube.com/watch?v=IGDASheQcx0
+
+Mitiko - Estudios blancos 02/06 - https://m.youtube.com/watch?v=VXdar88XHdI&pp=ygUXbWl0aWtvIGVzdHVkaW9zIGJsYW5jb3M%3D
+
+Mitiko - Cantante - https://m.youtube.com/watch?v=4JOSouHKIoo&pp=ygUPbWl0aWtvIGNhbnRhbnRl
+
+Mitiko - Por cada injusticia - https://m.youtube.com/watch?v=3ssBvka0LUU&pp=ygUabWl0aWtvIHBvciBjYWRhIGluanVzdGljaWE%3D
 
 Chinatown - Mis armas - https://www.youtube.com/watch?v=KVqOHgZBWWQ
 

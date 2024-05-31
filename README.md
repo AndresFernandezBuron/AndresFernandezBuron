@@ -312,7 +312,13 @@ Yamal ft Mtitiko - Lo siento por ti - https://www.youtube.com/watch?v=zwAEP2suwH
 
 Mitko y dj Uve - Coge las maletas - https://www.youtube.com/watch?v=mL19kZAXn4M&pp=ygUXbWl0aWtvIGNvZ2UgbGFzIG1hbGV0YXM%3D
 
-Beastie boys - Sabotage - https://www.youtube.com/watch?v=z5rRZdiu1UE
+Chinatown - En nadie más - https://m.youtube.com/watch?v=ViX0ScY549Y&pp=ygUWY2hpbmF0b3dtIGVuIG5hZGllIG1hZA%3D%3D
+
+Chinatown - Añoro viejos tiempos - https://m.youtube.com/watch?v=ZZ-JUGIIYKQ&pp=ygUfY2hpbmF0b3duIGHDsW9ybyB2aWVqb3MgdGllbXBvcw%3D%3D
+
+Mitiko y Dj Yata - Menos de mil - https://m.youtube.com/watch?v=O1y7ScE2kYc&pp=ygUTbWl0aWtvIG1lbm9zIGRlIG1pbA%3D%3D
+
+Pikolo - NWO - https://m.youtube.com/watch?v=s3kGFfzBtu4&pp=ygUKcGlrb2xvIG53bw%3D%3D
 
 V.K.R - La peña va de digna -
 
@@ -322,21 +328,9 @@ Chulito Camacho - Cómo funciona el mundo -
 
 Chulito Camacho - Cuánto más bueno - 
 
-Cypress Hill - Can't get the best of me - 
+Public enemy - Fight the power - https://m.youtube.com/watch?v=jRJKjiCtVco&pp=ygUccHVibGljIGVuZW15IGZpZ2h0IHRoZSBwb3dlcg%3D%3D
 
-Cypress Hill - Tu no ajuanta - 
-
-Cypress Hill - Muévete - 
-
-Cypress Hill - No pierdo nada - 
-
-Calle 13 - Querido fbi - 
-
-Public enemy - Fight the power - 
-
-N.W.A - Fuck the police - 
-
-Ice Cube - Wicked - 
+Beastie boys - Sabotage - https://www.youtube.com/watch?v=z5rRZdiu1UE
 
 </td></tr>
 

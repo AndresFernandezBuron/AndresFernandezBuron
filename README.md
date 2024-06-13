@@ -328,6 +328,22 @@ Chulito Camacho - Cómo funciona el mundo -
 
 Chulito Camacho - Cuánto más bueno - 
 
+Payo malo - Ojo en la espalda - https://m.youtube.com/watch?v=JYzFmzOWiKE&pp=ygUbcGF5byBtYWxvIG9qbyBlbiBsYSBlc3BhbGRh
+
+Mucho muchacho - 800 cabrones - https://m.youtube.com/watch?v=TGhTjEk-BBU&pp=ygUSbXVjaG8gbXVjaGFjaG8gODAw
+
+Mucho muchacho - Chulería - https://m.youtube.com/watch?v=tstItsKRLU8&pp=ygUXbXVjaG8gbXVjaGFjaG8gY2h1bGVyaWE%3D
+
+Mitiko ft Cool Z - El estado - https://www.youtube.com/watch?v=89xMD4hqo2s&pp=ygUNbWl0aWtvIGNvb2wgeg%3D%3D
+
+Priteo - Moai thai - https://m.youtube.com/watch?v=wKnH_YP1Osg&pp=ygUUcHJpdGVvIG1vYWkgdGhhaSBwcnQ%3D
+
+El tralla - Baila con la fea - https://m.youtube.com/watch?v=_rCqoZBGEQU&pp=ygUaZWwgdHJhbGxhIGJhaWxhIGNvbiBsYSBmZWE%3D
+
+Los jondo - Hogar, dulce hogar - https://www.youtube.com/watch?v=o9u-UngwT8E
+
+Chinatown - Djs verbatim - https://www.youtube.com/watch?v=Bj5QXNAqYF4
+
 Public enemy - Fight the power - https://m.youtube.com/watch?v=jRJKjiCtVco&pp=ygUccHVibGljIGVuZW15IGZpZ2h0IHRoZSBwb3dlcg%3D%3D
 
 Beastie boys - Sabotage - https://www.youtube.com/watch?v=z5rRZdiu1UE

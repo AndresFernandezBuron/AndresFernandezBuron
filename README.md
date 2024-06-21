@@ -308,6 +308,12 @@ Mitiko - Por cada injusticia - https://m.youtube.com/watch?v=3ssBvka0LUU&pp=ygUa
 
 Chinatown - Mis armas - https://www.youtube.com/watch?v=KVqOHgZBWWQ
 
+Mitiko - Mira - https://www.youtube.com/results?search_query=mitiko+mira
+
+Mitiko - Free 2015 - https://www.youtube.com/watch?v=cWJ-5wOT3fQ
+
+Mitiko - Free mitiko 2012 - https://www.youtube.com/watch?v=eo6E3V_LpEM
+
 Yamal ft Mtitiko - Lo siento por ti - https://www.youtube.com/watch?v=zwAEP2suwHE
 
 Mitko y dj Uve - Coge las maletas - https://www.youtube.com/watch?v=mL19kZAXn4M&pp=ygUXbWl0aWtvIGNvZ2UgbGFzIG1hbGV0YXM%3D
@@ -333,6 +339,8 @@ Payo malo - Ojo en la espalda - https://m.youtube.com/watch?v=JYzFmzOWiKE&pp=ygU
 Mucho muchacho - 800 cabrones - https://m.youtube.com/watch?v=TGhTjEk-BBU&pp=ygUSbXVjaG8gbXVjaGFjaG8gODAw
 
 Mucho muchacho - Chulería - https://m.youtube.com/watch?v=tstItsKRLU8&pp=ygUXbXVjaG8gbXVjaGFjaG8gY2h1bGVyaWE%3D
+
+Mucho muchacho - Ven, dame - https://www.youtube.com/watch?v=Ofdz5-t8JIo
 
 Mitiko ft Cool Z - El estado - https://www.youtube.com/watch?v=89xMD4hqo2s&pp=ygUNbWl0aWtvIGNvb2wgeg%3D%3D
 

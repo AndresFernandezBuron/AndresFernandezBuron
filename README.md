@@ -296,11 +296,13 @@ for(;;)
 
 Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
-Keyo - Si vis pacem para bellum - https://www.youtube.com/watch?v=PFOs4c_ALKw
-
 Priteo y Dj Yata - Clases de disciplina - https://www.youtube.com/watch?v=IGDASheQcx0
 
 Chinatown - 4x4 PR2017 - https://www.youtube.com/watch?v=Yt_pK7BmXpw&pp=ygUUY2hpbmF0b3duIDR4NCBQUjIwMDc%3D
+
+Puto largo - Freedom - https://www.youtube.com/watch?v=-Ivz6VjKoVY
+
+Dogma crew - Terapia extrema - https://www.youtube.com/watch?v=tAcQ0RrCO4I
 
 Mitiko - Estudios blancos 02/06 - https://m.youtube.com/watch?v=VXdar88XHdI&pp=ygUXbWl0aWtvIGVzdHVkaW9zIGJsYW5jb3M%3D
 

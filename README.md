@@ -300,6 +300,8 @@ Mitiko - Presentación 2000 - https://www.youtube.com/watch?v=W-hfCqsLQPY
 
 Perros callejeros - Jinchos del nuevo milenio - https://m.youtube.com/watch?v=mFqXiu-Cgjk&pp=ygUscGVycm9zIGNhbGxlamVyb3MgIGppbmNob3MgZGVsIG51ZXZvIG1pbGVuaW8%3D
 
+Chinatown - No tocar el hardcore - https://m.youtube.com/watch?v=kEElVWzXxpA&pp=ygUTY2hpbmF0b3duIG5vIHRvY2FyIA%3D%3D
+
 Priteo y Dj Yata - Clases de disciplina - https://www.youtube.com/watch?v=IGDASheQcx0
 
 Chinatown - 4x4 PR2017 - https://www.youtube.com/watch?v=Yt_pK7BmXpw&pp=ygUUY2hpbmF0b3duIDR4NCBQUjIwMDc%3D

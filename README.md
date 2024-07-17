@@ -298,6 +298,10 @@ Las mejores obras de Mozart https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
 Mitiko - Presentación 2000 - https://www.youtube.com/watch?v=W-hfCqsLQPY
 
+Keyo - Tenemos fuerza - https://m.youtube.com/watch?v=RGc27xBsGMY&pp=ygUTa2V5byB0ZW5lbW9zIGZ1ZXJ6YQ%3D%3D
+
+Jefe de la M y Triple X - 13 - https://m.youtube.com/watch?v=E4lobmh99RU&pp=ygUPamVmZSBkZSBsYSBtIDEz
+
 Perros callejeros - Jinchos del nuevo milenio - https://m.youtube.com/watch?v=mFqXiu-Cgjk&pp=ygUscGVycm9zIGNhbGxlamVyb3MgIGppbmNob3MgZGVsIG51ZXZvIG1pbGVuaW8%3D
 
 Chinatown - No tocar el hardcore - https://m.youtube.com/watch?v=kEElVWzXxpA&pp=ygUTY2hpbmF0b3duIG5vIHRvY2FyIA%3D%3D

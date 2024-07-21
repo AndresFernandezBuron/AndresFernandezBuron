@@ -169,13 +169,14 @@ Tools:
 - El sistema y la justicia es que los listos tengan plaza fija.
 
 - No te hagas inteligente.
+
 Acabarás dándote cuenta de que solo hay subormales y de que eres tú el que tiene que soportar sus estupideces.
 
 - Nunca me verás creyendo una versión oficial y menos una policial. 
 
 - Un asunto sanitario es cometer delitos e irse de rositas.
 
-- Puteo una persona mil veces, la grabo diciéndome lo que merezco y te digo: Mira qué malo es.
+- Puteo a una persona mil veces, la grabo diciéndome lo que merezco y te digo: Mira qué malo es.
 Quién soy?
 
 - Soy un funcionario antifascista de los buenos, y por eso pregunto a un abstencionista a ver si es negacionista y a ver si es de vox mientras le retengo 1 hora por quinta vez porque el muy cabrón es asmático y se ahoga con mascarilla.

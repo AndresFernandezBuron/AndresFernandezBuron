@@ -189,6 +189,8 @@ Quién soy?
 - Hoy no eres nadie y te jodo, pero si mañana vales un duro, vente conmigo.
 
 - Soy progresista: fronteras abiertas, toque de queda, coacciones sanitarias e ilegalidades impunes.
+
+- Soy la autoridad, pero de derechos y de leyes no me hables, que yo solo sé que para cagar hay que comer, y que para eso tengo que obedecer. Eso si, también sé que soy de los buenos.
 	
 - If you don't like it, you don't understand it. 🤡
 

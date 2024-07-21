@@ -195,6 +195,8 @@ Quién soy?
   Ah, también sé que soy de los buenos y que tú no porque no le bailas el agua al que me paga, que obviamente, es de los buenos.
 
 - Somos los buenos, vamos a parar otra vez, hora y media a un chaval que está a la una de la mañana de un finde, sacando al perro en un parque vacío, y nos echamos unas risas mientras por la radio se oye que necesitan ayuda porque hay peleas y heridos.
+
+- Reparto el dinero de los nacionales, mientras que en mi nación hay pobreza y paro. Pero es porque soy bueno, no es porque quiera sabotear el mercado laboral privado y tener nuevos votantes que no estén hartos de la corrupción y las mentiras.
 	
 - If you don't like it, you don't understand it. 🤡
 

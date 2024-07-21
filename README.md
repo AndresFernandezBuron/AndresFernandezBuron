@@ -190,7 +190,11 @@ Quién soy?
 
 - Soy progresista: fronteras abiertas, toque de queda, coacciones sanitarias e ilegalidades impunes.
 
-- Soy la autoridad, pero de derechos y de leyes no me hables, que yo solo sé que para cagar hay que comer, y que para eso tengo que obedecer. Eso si, también sé que soy de los buenos.
+- Soy la autoridad, pero de derechos y de leyes no me hables, que yo solo sé que para cagar hay que comer, y que para eso tengo que obedecer.
+  Tampoco me digas palabras raras cómo "distopía" que no eres mejor que yo por  A VER HESTUDIAU.
+  Ah, también sé que soy de los buenos.
+
+- Somos los buenos, vamos a parar otra vez, hora y media a un chaval que está a la una de la mañana de un finde, sacando al perro en un parque vacío, y nos echamos unas risas mientras por la radio se oye que necesitan ayuda porque hay peleas y heridos.
 	
 - If you don't like it, you don't understand it. 🤡
 

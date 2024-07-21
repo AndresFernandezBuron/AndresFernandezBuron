@@ -169,8 +169,7 @@ Tools:
 - El sistema y la justicia es que los listos tengan plaza fija.
 
 - No te hagas inteligente.
-
-Acabarás dándote cuenta de que solo hay subormales y de que eres tú el que tiene que soportar sus estupideces.
+  Acabarás dándote cuenta de que solo hay subormales y de que eres tú el que tiene que soportar sus estupideces.
 
 - Nunca me verás creyendo una versión oficial y menos una policial. 
 

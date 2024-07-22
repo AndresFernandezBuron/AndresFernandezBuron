@@ -226,15 +226,16 @@ Porque somos los buenos, y nosotros decidimos por los demás, que para eso está
 - Soy un funcionario antifascista de los buenos, voy a convertir las sirenas y luces, en la campana de Pavlov.
 Y luego, le hecho la culpa al perro por salibar.
 
-- Soy un funcionario antifascista de los buenos y voy a participar en que instituciones extranjeras y empresas multinacionales tengan más voz que los ciudadanos.
-Es más, cómo soy de los buenos, vamos a hacer la campaña publicitaria de un producto farmacéutico (cuyo uso era ilegal hace cuatro días) y al qie no quiera comprar y tomar el producto, les quitamos derechos (que para algo son nuestros).
-Y cómo también soy mu antifascista voy a gastar millones en que los payasos de la tele se dediquen durante años a decir a los borregos que la gente que utiliza el cerebro es negacionista.
+- Somos antifrancos y vamos a participar en que instituciones extranjeras y empresas multinacionales tengan más voz (y beneficio) que los ciudadanos.
+Es más, cómo somos los buenos, vamos a alienar a la sociedad y a repartir millones entre los nuestros para que censuren la información y monten un ministerio de la verdad (la de los buenos).
+Y cómo somos muy solidarios vamos a hacer la campaña publicitaria de un producto farmacéutico (cuyo uso era ilegal hace cuatro días) con dinero público. Y al que no quiera comprar y tomar el producto, le quitamos derechos (que para algo son nuestros).
+Y cómo también somos muy antifascista vamos a gastar millones de dinero público, en que los payasos de la tele se dediquen durante años a decir a los borregos que la gente que utiliza el cerebro es negacionista.
 Es más, que tengan broncas en navidad, que para eso soy yo de los buenos.
 Así se acabarán sometiendo a la presión de grupo que metemos en la sociedad.
-Y si hay alguno que no sea un pusilánime, ya prepararemos bien la cama con algún montaje.
-Ah, y si después de putearles y preparárles mil y una, se les hinchan las pelotas, digo que son malos.
-Porque si, por que yo soy de los buenos, los antifascistas.
-Lo que haga da igual, aquí lo que importa es que soy de los buenos.
+Y si hay alguno que no sea un pusilánime, ya le prepararemos alguna cama o algún montaje.
+Ah, y si después de putearles y preparárles mil y una, se les hinchan las pelotas, decimos que son malos y drapetómanos.
+Porque si, porque somos de los buenos, los antifascistas.
+Los medios estatales son nuestros y lo que hagamos da igual, aquí lo que importa es que somos los buenos.
 
 - If you don't like it, you don't understand it. 🤡
 

@@ -203,7 +203,7 @@ Y lo voy a hacer hasta que el chaval odie salir a la calle para no tener que ver
 Ah, mejor vamos varios coches que así nos reímos más y le puteamos más. Eso sí, cuándo nos pida los números de placa (TIP en futuras), le decimos que solo nos pida a los primeros.
 
 - Soy un funcionario antifascista de los buenos, no cómo Franco.
- Pues mira, mi bisabuelo estuvo condenado a muerte en la posguerra,  y Franco no sé, pero tú eres un fascista de treinta pares de cojones, y cómo ni lo sabes, seguramente tienes más vacunas que neuronas.
+- Pues mira, mi bisabuelo estuvo condenado a muerte en la posguerra,  y Franco no sé, pero tú eres un fascista de treinta pares de cojones, y cómo ni lo sabes, seguramente tienes más vacunas que neuronas.
 Ojalá hagan a vuestros hijos, lo que hacéis a los de los demás.
 
 - Soy un funcionario antifascista, vamos a putear a éste, hasta que ya no quiera ni ir al puto parque, ni salir de casa, porque somos los buenos y no una panda de hijos de puta con el estómago lleno.

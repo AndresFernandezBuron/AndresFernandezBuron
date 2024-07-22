@@ -175,9 +175,14 @@ Tools:
 
 - Un asunto sanitario es cometer delitos e irse de rositas.
 
-- Mira este vaso que feo.
-- Pero está roto, no?
-- Ah, si, olvidé decirte el pequeño detalle de que lo rompí a escondidas antes de enseñártelo. Pero a qué es feo?
+
+- 
+
+&emsp; ~ Mira este vaso que feo.
+
+&emsp; ~ Pero está roto, no?
+
+&emsp; ~ Ah, si, olvidé decirte el pequeño detalle de que lo rompí a escondidas antes de enseñártelo. Pero a qué es feo?
 
 - Puteo a una persona mil veces, la grabo diciéndome lo que merezco y te digo: Mira qué malo es.
 Quién soy?
@@ -206,8 +211,11 @@ Quién soy?
 Y lo voy a hacer hasta que el chaval odie salir a la calle para no tener que ver a putos monos con pistola.
 Ah, mejor vamos varios coches que así nos reímos más y le puteamos más. Eso sí, cuándo nos pida los números de placa (TIP en futuras), le decimos que solo nos pida a los primeros.
 
-- Soy un funcionario antifascista de los buenos, no cómo Franco.
-- Pues mira, mi bisabuelo estuvo condenado a muerte en la posguerra,  y Franco no sé, pero tú eres un fascista de treinta pares de cojones, y cómo ni lo sabes, seguramente tienes más vacunas que neuronas.
+- 
+
+&emsp; ~ Soy un funcionario antifascista de los buenos, no cómo Franco.
+
+&emsp; ~ Pues mira, mi bisabuelo estuvo condenado a muerte en la posguerra, y Franco no sé, pero tú eres un fascista de treinta pares de cojones, y cómo ni lo sabes, seguramente tienes más vacunas que neuronas.
 Ojalá hagan a vuestros hijos, lo que hacéis a los de los demás.
 
 - Soy un funcionario antifascista, vamos a putear a éste, hasta que ya no quiera ni ir al puto parque, ni salir de casa, porque somos los buenos y no una panda de hijos de puta con el estómago lleno.
@@ -219,7 +227,7 @@ Porque somos los buenos, y nosotros decidimos por los demás, que para eso está
 Y luego, le hecho la culpa al perro por salibar.
 
 - Soy un funcionario antifascista de los buenos y voy a participar en que instituciones extranjeras y empresas multinacionales tengan más voz que los ciudadanos.
-Es más, cómo soy de los buenos, vamos a hacer la campaña publicitaria de un producto farmacéutico (cuyo uso era ilegal hace cuatro días).
+Es más, cómo soy de los buenos, vamos a hacer la campaña publicitaria de un producto farmacéutico (cuyo uso era ilegal hace cuatro días) y al qie no quiera comprar y tomar el producto, les quitamos derechos (que para algo son nuestros).
 Y cómo también soy mu antifascista voy a gastar millones en que los payasos de la tele se dediquen durante años a decir a los borregos que la gente que utiliza el cerebro es negacionista.
 Es más, que tengan broncas en navidad, que para eso soy yo de los buenos.
 Ah, y si después de putearles y preparárles mil y una, se les hinchan las pelotas, digo que son malos.

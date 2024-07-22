@@ -197,6 +197,18 @@ Quién soy?
 - Somos los buenos, vamos a parar otra vez, hora y media a un chaval que está a la una de la mañana de un finde, sacando al perro en un parque vacío, y nos echamos unas risas mientras por la radio se oye que necesitan ayuda porque hay peleas y heridos.
 
 - Reparto el dinero de los nacionales, mientras que en mi nación hay pobreza y paro. Pero es porque soy bueno, no es porque quiera sabotear el mercado laboral privado y tener nuevos votantes que no estén hartos de la corrupción y las mentiras.
+
+- Soy un funcionario antifascista de los buenos, voy a conseguir que me paguen por ir a trabajar al lado de la casa de un asmático con dos neumotórax, a putearle y a amenazarle con desobediencia civil, por no llevar mascarilla.
+Y lo voy a hacer hasta que el chaval odie salir a la calle para no tener que ver a putos monos con pistola.
+Ah, mejor vamos varios coches que así nos reímos más y le puteamos más. Eso sí, cuándo nos pida los números de placa (TIP en futuras), le decimos que solo nos pida a los primeros.
+
+- Soy un funcionario antifascista de los buenos, no cómo Franco.
+ Pues mira, mi bisabuelo estuvo condenado a muerte en la posguerra,  y Franco no sé, pero tú eres un fascista de treinta pares de cojones, y cómo ni lo sabes, seguramente tienes más vacunas que neuronas.
+Ojalá hagan a vuestros hijos, lo que hacéis a los de los demás.
+
+- Soy un funcionario antifascista, vamos a putear a éste, hasta que ya no quiera ni ir al puto parque, ni salir de casa, porque somos los buenos y no una panda de hijos de puta con el estómago lleno.
+Porque somos los buenos, y nosotros decidimos por los demás, que para eso está la ley, y si no, nos la saltamos que para eso es del que nos paga con el dinero de los demás
+
 	
 - If you don't like it, you don't understand it. 🤡
 

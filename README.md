@@ -171,7 +171,7 @@ Tools:
 - No te hagas inteligente.
   Acabarás dándote cuenta de que solo hay subormales y de que eres tú el que tiene que soportar sus estupideces.
 
-- Nunca me verás creyendo una versión oficial y menos una policial. 
+- Nunca me verás creyendo una versión oficial ni policial. Y menos la de borregos cuyo pienso son las dos primeras. 
 
 - Un asunto sanitario es cometer delitos e irse de rositas.
 

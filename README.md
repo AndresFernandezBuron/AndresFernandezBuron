@@ -175,6 +175,10 @@ Tools:
 
 - Un asunto sanitario es cometer delitos e irse de rositas.
 
+- Mira este vaso que feo.
+- Pero está roto, no?
+- Ah, si, olvidé decirte el pequeño detalle de que lo rompí a escondidas antes de enseñártelo. Pero a qué es feo?
+
 - Puteo a una persona mil veces, la grabo diciéndome lo que merezco y te digo: Mira qué malo es.
 Quién soy?
 
@@ -221,7 +225,7 @@ Es más, que tengan broncas en navidad, que para eso soy yo de los buenos.
 Ah, y si después de putearles y preparárles mil y una, se les hinchan las pelotas, digo que son malos.
 Porque si, por que yo soy de los buenos, los antifascistas.
 Lo que haga da igual, aquí lo que importa es que soy de los buenos.
-	
+
 - If you don't like it, you don't understand it. 🤡
 
 - This is for laughs. If you aren't smart, you can go directly to the technical part.

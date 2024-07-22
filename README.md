@@ -230,6 +230,8 @@ Y luego, le hecho la culpa al perro por salibar.
 Es más, cómo soy de los buenos, vamos a hacer la campaña publicitaria de un producto farmacéutico (cuyo uso era ilegal hace cuatro días) y al qie no quiera comprar y tomar el producto, les quitamos derechos (que para algo son nuestros).
 Y cómo también soy mu antifascista voy a gastar millones en que los payasos de la tele se dediquen durante años a decir a los borregos que la gente que utiliza el cerebro es negacionista.
 Es más, que tengan broncas en navidad, que para eso soy yo de los buenos.
+Así se acabarán sometiendo a la presión de grupo que metemos en la sociedad.
+Y si hay alguno que no sea un pusilánime, ya prepararemos bien la cama con algún montaje.
 Ah, y si después de putearles y preparárles mil y una, se les hinchan las pelotas, digo que son malos.
 Porque si, por que yo soy de los buenos, los antifascistas.
 Lo que haga da igual, aquí lo que importa es que soy de los buenos.
@@ -341,20 +343,6 @@ And 100,000 to believe it.
 - Keep calm. Animus iocandi. Just joker.
 
 </tr>
-<tr><td align="center" valign="middle" colspan="2">
-
-**Who am I:**
-</td></tr>
-
-<tr><td colspan="2">
-
-```
-for(;;)
-```
-</td></tr>
-
-
-
 
 <tr><td align="center" valign="middle" colspan="2">
 

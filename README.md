@@ -182,7 +182,7 @@ Tools:
 
 &emsp; ~ Pero está roto, no?
 
-&emsp; ~ Ah, si, olvidé decirte el pequeño detalle de que lo rompí a escondidas antes de enseñártelo. Pero a qué es feo?
+&emsp; ~ Ah, si, olvidé el pequeño detalle de que lo rompí antes de enseñártelo. Pero a qué es feo?
 
 - Puteo a una persona mil veces, la grabo diciéndome lo que merezco y te digo: Mira qué malo es.
 Quién soy?
@@ -221,7 +221,7 @@ Ojalá hagan a vuestros hijos, lo que hacéis a los de los demás.
 - Soy un funcionario antifascista, vamos a putear a éste, hasta que ya no quiera ni ir al puto parque, ni salir de casa, porque somos los buenos y no una panda de hijos de puta con el estómago lleno.
 Porque somos los buenos, y nosotros decidimos por los demás, que para eso está la ley, y si no, nos la saltamos que para eso es del que nos paga con el dinero de los demás
 
-- Soy un funcionario antifascista de los buenos, me envuelvo en el manto estatal y puteo hasta que no quiera salir de casa, al chaval cuya madre, PREVIAMENTE, me tuvo que llamar la atencion y recriminarme que no tengo derecho a pegar a un marroquí.
+- Soy un funcionario antifascista de los buenos, me envuelvo en el manto estatal y puteo hasta que no quiera salir de casa, al chaval cuya madre, PREVIAMENTE, me tuvo que llamar la atención y recriminarme que no tengo derecho a pegar a un marroquí.
 
 - Soy un funcionario antifascista de los buenos, voy a convertir las sirenas y luces, en la campana de Pavlov.
 Y luego, le hecho la culpa al perro por salibar.

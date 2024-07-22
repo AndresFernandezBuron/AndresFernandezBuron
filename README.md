@@ -209,7 +209,18 @@ Ojalá hagan a vuestros hijos, lo que hacéis a los de los demás.
 - Soy un funcionario antifascista, vamos a putear a éste, hasta que ya no quiera ni ir al puto parque, ni salir de casa, porque somos los buenos y no una panda de hijos de puta con el estómago lleno.
 Porque somos los buenos, y nosotros decidimos por los demás, que para eso está la ley, y si no, nos la saltamos que para eso es del que nos paga con el dinero de los demás
 
-- Soy un funcionario antifascista de los buenos, me envuelvo en el manto estatal y puteo hasta que no quiera salir de casa, al chaval cuya madre, PREVIAMENTE, me tuvo que llamar la atencion y recriminarme que no tengo derecho a pegar a un marroquí. 
+- Soy un funcionario antifascista de los buenos, me envuelvo en el manto estatal y puteo hasta que no quiera salir de casa, al chaval cuya madre, PREVIAMENTE, me tuvo que llamar la atencion y recriminarme que no tengo derecho a pegar a un marroquí.
+
+- Soy un funcionario antifascista de los buenos, voy a convertir las sirenas y luces, en la campana de Pavlov.
+Y luego, le hecho la culpa al perro por salibar.
+
+- Soy un funcionario antifascista de los buenos y voy a participar en que instituciones extranjeras y empresas multinacionales tengan más voz que los ciudadanos.
+Es más, cómo soy de los buenos, vamos a hacer la campaña publicitaria de un producto farmacéutico (cuyo uso era ilegal hace cuatro días).
+Y cómo también soy mu antifascista voy a gastar millones en que los payasos de la tele se dediquen durante años a decir a los borregos que la gente que utiliza el cerebro es negacionista.
+Es más, que tengan broncas en navidad, que para eso soy yo de los buenos.
+Ah, y si después de putearles y preparárles mil y una, se les hinchan las pelotas, digo que son malos.
+Porque si, por que yo soy de los buenos, los antifascistas.
+Lo que haga da igual, aquí lo que importa es que soy de los buenos.
 	
 - If you don't like it, you don't understand it. 🤡
 

@@ -365,6 +365,12 @@ Mitiko - Presentación 2000 - https://www.youtube.com/watch?v=W-hfCqsLQPY
 
 Keyo - Tenemos fuerza - https://m.youtube.com/watch?v=RGc27xBsGMY&pp=ygUTa2V5byB0ZW5lbW9zIGZ1ZXJ6YQ%3D%3D
 
+Perros callejeros - Ovejas - https://m.youtube.com/watch?v=rs6b0EMoP4Y&pp=ygUYcGVycm9zIGNhbGxlamVyb3Mgb3ZlamFz
+
+Perros callejeros - Puto dinero - https://m.youtube.com/watch?v=arl5pHFyaHw
+
+Masstone - Se oye - https://m.youtube.com/watch?v=WP2s2-Cpf90
+
 Jefe de la M y Triple X - 13 - https://m.youtube.com/watch?v=E4lobmh99RU&pp=ygUPamVmZSBkZSBsYSBtIDEz
 
 Perros callejeros - Jinchos del nuevo milenio - https://m.youtube.com/watch?v=mFqXiu-Cgjk&pp=ygUscGVycm9zIGNhbGxlamVyb3MgIGppbmNob3MgZGVsIG51ZXZvIG1pbGVuaW8%3D

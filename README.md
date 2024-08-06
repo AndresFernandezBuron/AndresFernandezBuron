@@ -166,6 +166,15 @@ Tools:
 </tr>
 <tr><td colspan="2">
 
+-
+~ Toc, toc. Soy juez, parte, cómplice y verdugo.
+~ Quién es? 
+~ La democracia intravenosa, sin ánimo de farmacia.
+
+- Franco era muy malo, no cómo nosotros que nos gusta inyectar cosas a la gente mediante coacciones y maquinaria propagandística multimillonaria.
+  
+- Franco era un antidemócrata, no cómo nosotros, que nos gusta encerrar a la gente, inyectarles cosas, meterles miedo y coaccionarlas.
+
 - El sistema y la justicia es que los listos tengan plaza fija.
 
 - No te hagas inteligente.

@@ -58,8 +58,6 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 <tr><td colspan="2">
 	
 - Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
-
-- Qué bonito el traje nuevo del emperador. Voy a sonreír y odiar al que digan, los medios financiados por el estado.
   
 - Los que ayudan a países con pobreza, pero con recursos naturales, nunca lo hacen mejorando sus economías.
 
@@ -176,6 +174,10 @@ Tools:
 <tr><td colspan="2">
 
 - La política, en democracia y en dictadura, es muy simple. Si no te relacionas con alguien del ayuntamiento, te quedas sin comer.
+
+- Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
+
+- Qué bonito el traje nuevo del emperador. Voy a sonreír y odiar al que me digan, los medios de masas financiados por el estado.
   
 - Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
 
@@ -184,8 +186,6 @@ Tools:
 - Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.
 
 - Hola soy la democracia y yo decido lo qué tienes que saber, hacer y pensar. A quién tienes que odiar, lo que tienes que inyectarte y qué leyes se pueden violar cuándo quiera.
-
-- Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
 
 - Hola, soy la democracia postdictadura, odia a la quimera que hemos ideado y esparcido mediante medios de masas, cuál si fueran herejes tras el edicto de Tesalónica. Porque... tú no serás un negacionista, no?
 

@@ -200,6 +200,8 @@ Tools:
 
 &emsp; ~ La democracia intravenosa, sin ánimo de farmacia.
 
+- Podría decirte que soy cómo el indomable Will Hunting, pero me imagínarías en peleas de bar, cuándo solo te estaría diciéndote que puedo ir y volver llevándoos de paseo. Así que mejor no lo hago, porque además, después tendría que corregiros, haceros esquemas, y evidenciaros hasta lo indefendible.
+
 - Ya lo digo un antiguo sabio: hay que estar loco para no querer inyectarte cosas del ayuntamiento.
 
 - Ante la duda, la propaganda más subencionada.

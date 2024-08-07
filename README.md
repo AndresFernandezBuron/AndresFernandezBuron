@@ -55,7 +55,11 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 I'm going to release some of my projects, because Adam Smith's hand suffers from the Duning-Kruger effect.
     
 </td></tr>
+
+<tr><td colspan="2">
+Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
 </td></tr>
+
 <tr><td align="center" valign="middle" colspan="2">
 
 **Críticas de alguien inteligente al estado:**

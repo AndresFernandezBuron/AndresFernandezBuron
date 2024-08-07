@@ -174,6 +174,8 @@ Tools:
 <tr><td colspan="2">
 
 - La política, en democracia y en dictadura, es muy simple. Si no te relacionas con alguien del ayuntamiento, te quedas sin comer.
+  
+- Yo solo sé de ordenadores, de derecho no entiendo, así que no digo ná y me acojo a la segunda enmienda. Que vida hay una y antes de lamentarse, mejor enmendarse.
 
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
 

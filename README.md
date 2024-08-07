@@ -173,6 +173,10 @@ Tools:
 </tr>
 <tr><td colspan="2">
 
+- Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
+
+- Yo también corrí de los romanos.
+
 -
 &emsp; ~ Toc, toc. Soy juez, parte, cómplice y verdugo.
 

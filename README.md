@@ -184,6 +184,8 @@ Tools:
 - Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.
 
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
+
+- Ante la duda, la propaganda con las subenciones más gordas.
   
 - Yo solo sé de ordenadores, de derecho no entiendo, así que no digo ná y me acojo a la segunda enmienda. Que vida hay una y antes de lamentarse, mejor enmendarse.
 
@@ -207,8 +209,6 @@ Tools:
 - Podría decirte que soy cómo el indomable Will Hunting, pero me imagínarías en peleas de bar, cuándo solo te estaría diciéndo que puedo ir y volver llevándoos de paseo. Así que mejor no lo hago, porque además, después tendría que corregiros, haceros esquemas, y evidenciar la verdad hasta lo indefendible.
 
 - Ya lo digo un antiguo sabio: hay que estar loco para no querer inyectarte cosas del ayuntamiento.
-
-- Ante la duda, la propaganda más subencionada.
 
 - Franco era muy malo, no cómo nosotros que nos gusta inyectar cosas a la gente mediante coacciones y maquinaria propagandística multimillonaria.
   

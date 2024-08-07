@@ -58,6 +58,8 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 <tr><td colspan="2">
 	
 - Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
+
+- Sea dictadura, sea democracia, los buenos son los del ayuntamiento y los medios de propaganda.
   
 - Los que ayudan a países con pobreza, pero con recursos naturales, nunca lo hacen mejorando sus economías.
 

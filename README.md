@@ -168,7 +168,9 @@ Tools:
 
 -
 &emsp; ~ Toc, toc. Soy juez, parte, cómplice y verdugo.
+
 &emsp; ~ Quién es? 
+
 &emsp; ~ La democracia intravenosa, sin ánimo de farmacia.
 
 ~ Ya lo digo un antiguo sabio: ay que estar loco para no inyectarte cosas del ayuntamiento.

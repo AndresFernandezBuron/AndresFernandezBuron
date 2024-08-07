@@ -173,6 +173,8 @@ Tools:
 </tr>
 <tr><td colspan="2">
 
+- Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
+
 - La política, en democracia y en dictadura, es muy simple. Si no te relacionas con alguien del ayuntamiento, te quedas sin comer.
   
 - Yo solo sé de ordenadores, de derecho no entiendo, así que no digo ná y me acojo a la segunda enmienda. Que vida hay una y antes de lamentarse, mejor enmendarse.
@@ -200,7 +202,7 @@ Tools:
 
 &emsp; ~ La democracia intravenosa, sin ánimo de farmacia.
 
-- Podría decirte que soy cómo el indomable Will Hunting, pero me imagínarías en peleas de bar, cuándo solo te estaría diciéndote que puedo ir y volver llevándoos de paseo. Así que mejor no lo hago, porque además, después tendría que corregiros, haceros esquemas, y evidenciaros hasta lo indefendible.
+- Podría decirte que soy cómo el indomable Will Hunting, pero me imagínarías en peleas de bar, cuándo solo te estaría diciéndo que puedo ir y volver llevándoos de paseo. Así que mejor no lo hago, porque además, después tendría que corregiros, haceros esquemas, y evidenciar la verdad hasta lo indefendible.
 
 - Ya lo digo un antiguo sabio: hay que estar loco para no querer inyectarte cosas del ayuntamiento.
 

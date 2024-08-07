@@ -31,8 +31,6 @@ Las políticas totalitarias e ilegales covid han traído muchos cambios a mi vid
     
 Estoy buscando trabajo en remoto en español, porque requiero dinero y estar lejos de cualquier institución de estado.
 
-Voy a liberar algunos de mis proyectos, porque la mano de Adam Smith sufre el efecto Duning-Kruger.
-    
 <br>
     
 </td>
@@ -49,10 +47,6 @@ a developer from Spain.
 Totalitarian and illegal covid policies have brought many changes to my life.
     
 I'm looking for a remote job in Spanish, because I need money I want to stay away from any state institution.
-    
-<br>
-
-I'm going to release some of my projects, because Adam Smith's hand suffers from the Duning-Kruger effect.
     
 </td></tr>
 

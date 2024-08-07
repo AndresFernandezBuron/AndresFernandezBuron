@@ -58,6 +58,8 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 <tr><td colspan="2">
 	
 - Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
+
+- Qué bonito el traje nuevo del emperador. Voy a sonreír y odiar al que digan, los medios financiados por el estado.
   
 - Los que ayudan a países con pobreza, pero con recursos naturales, nunca lo hacen mejorando sus economías.
 
@@ -174,6 +176,12 @@ Tools:
 <tr><td colspan="2">
 
 - Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
+
+- Hola, soy la democracia y violo la ley y tus derechos, pero no cómo Franco, yo lo hago por tu bien.
+
+- Hola soy la democracia y yo decido lo qué tienes que saber, hacer, a quién tienes que odiar, lo que tienes que inyectarte y qué leyes se pueden violar cuándo quiera.
+
+- Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
 
 - Hola, soy la democracia postdictadura, odia a la quimera que hemos ideado y esparcido mediante medios de masas, cuál herejes tras el edicto de Tesalónica. Porque... tú no serás un negacionista, no?
 

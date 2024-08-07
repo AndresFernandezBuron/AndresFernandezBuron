@@ -175,7 +175,7 @@ Tools:
 
 ~ Ya lo digo un antiguo sabio: ay que estar loco para no inyectarte cosas del ayuntamiento.
 
-- Ante la duda, la propaganda.
+- Ante la duda, la propaganda más subencionada.
 
 - Franco era muy malo, no cómo nosotros que nos gusta inyectar cosas a la gente mediante coacciones y maquinaria propagandística multimillonaria.
   

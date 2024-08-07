@@ -167,9 +167,13 @@ Tools:
 <tr><td colspan="2">
 
 -
-~ Toc, toc. Soy juez, parte, cómplice y verdugo.
-~ Quién es? 
-~ La democracia intravenosa, sin ánimo de farmacia.
+&emsp; ~ Toc, toc. Soy juez, parte, cómplice y verdugo.
+&emsp; ~ Quién es? 
+&emsp; ~ La democracia intravenosa, sin ánimo de farmacia.
+
+~ Ya lo digo un antiguo sabio: ay que estar loco para no inyectarte cosas del ayuntamiento.
+
+- Ante la duda, la propaganda.
 
 - Franco era muy malo, no cómo nosotros que nos gusta inyectar cosas a la gente mediante coacciones y maquinaria propagandística multimillonaria.
   

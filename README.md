@@ -175,6 +175,8 @@ Tools:
 </tr>
 <tr><td colspan="2">
 
+- La política, en democracia y en dictadura, es muy simple. Si no te relacionas con alguien del ayuntamiento, te quedas sin comer.
+  
 - Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
 
 - Hola, soy la democracia y violo la ley y tus derechos, pero no cómo Franco, yo lo hago por tu bien.

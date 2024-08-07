@@ -179,17 +179,17 @@ Tools:
 
 - Ni tan Calvo, ni tan Sotelo, el que me jode, se va primero.
 
+- Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
+
+- Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.
+
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
   
 - Yo solo sé de ordenadores, de derecho no entiendo, así que no digo ná y me acojo a la segunda enmienda. Que vida hay una y antes de lamentarse, mejor enmendarse.
 
 - Qué bonito el traje nuevo del emperador. Voy a sonreír y odiar al que me digan, los medios de masas financiados por el estado.
-  
-- Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
 
 - Hola, soy la democracia y violo la ley y tus derechos, pero no cómo Franco, yo lo hago por tu bien.
-  
-- Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.
 
 - Hola soy la democracia y yo decido lo qué tienes que saber, hacer y pensar. A quién tienes que odiar, lo que tienes que inyectarte y qué leyes se pueden violar cuándo quiera.
 

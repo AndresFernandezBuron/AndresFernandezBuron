@@ -173,7 +173,9 @@ Tools:
 </tr>
 <tr><td colspan="2">
 
-- Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
+- Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
+
+- Hola, soy la democracia postdictadura, odia a la quimera que hemos ideado y esparcido mediante medios de masas, cuál herejes tras el edicto de Tesalónica. Porque... tú no serás un negacionista, no?
 
 - Yo también corrí de los romanos.
 

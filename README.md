@@ -178,12 +178,14 @@ Tools:
 - Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
 
 - Hola, soy la democracia y violo la ley y tus derechos, pero no cómo Franco, yo lo hago por tu bien.
+  
+- Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.
 
-- Hola soy la democracia y yo decido lo qué tienes que saber, hacer, a quién tienes que odiar, lo que tienes que inyectarte y qué leyes se pueden violar cuándo quiera.
+- Hola soy la democracia y yo decido lo qué tienes que saber, hacer y pensar. A quién tienes que odiar, lo que tienes que inyectarte y qué leyes se pueden violar cuándo quiera.
 
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
 
-- Hola, soy la democracia postdictadura, odia a la quimera que hemos ideado y esparcido mediante medios de masas, cuál herejes tras el edicto de Tesalónica. Porque... tú no serás un negacionista, no?
+- Hola, soy la democracia postdictadura, odia a la quimera que hemos ideado y esparcido mediante medios de masas, cuál si fueran herejes tras el edicto de Tesalónica. Porque... tú no serás un negacionista, no?
 
 - Yo también corrí de los romanos.
 

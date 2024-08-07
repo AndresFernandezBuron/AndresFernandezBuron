@@ -181,6 +181,8 @@ Tools:
 
 - Ni tan Calvo, ni tan Sotelo, el que me jode, se va primero.
 
+- Cuándo hablo, sube el pan. Pan, pan, pan. Uy que hambre.
+
 - Hola, soy la democracia. Tienes que pensar esto, tienes que sentir esto, e inyectarte esto, y si no, te quedas sin pasaporte para ir al supermercado.
 
 - Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.

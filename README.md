@@ -61,6 +61,10 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - Sea dictadura, sea democracia, los buenos son los del ayuntamiento y los medios de propaganda.
 
+- La democracia alienando a la sociedad, es dictadura maquillada.
+
+- La democracia y la dictadura son un baile de máscaras.
+
 - La política es el humo que tapa al estado, simulando la apariencia de cambio.
 
 - La economía es un sistema de intercambio, que el estado convierte en sistema de control social.
@@ -82,6 +86,10 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 - La gente sobrevalora sus capacidades, pero trabajarlas, mañana.
 
 - La propaganda, la alienación y la manipulación psicologica, debe ser delito de Lesa humanidad, y su masividad debe ser un agravante.
+
+- Si estás acostrumbado a moverte entre falsas apariencias, ya verás que risas entre realidades disimuladas.
+
+- No vivo de cara a la galería, si no de cara a mi. A quién tengo que agradar es a mí.
 
 </td></tr>
 

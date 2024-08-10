@@ -77,7 +77,11 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
   
 - Los que ayudan a países con pobreza, pero con recursos naturales, nunca lo hacen mejorando sus economías.
 
+- Sin derecho a la autotutela, los derechos humamos son efectivamente, una quimera.
+
 - Me cae mal la gente mala, pero peor me caen los malos que van de buenos.
+
+- Si quieres que algo esté bien hecho, tienes que hacerlo tú mismo. Pero si lo que quieres es sobrevivir, más aún.
 
 - Con el cobid aprendí que tengo que ser más selectivo y exigente con los demás.
 

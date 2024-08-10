@@ -95,7 +95,7 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - La gente hace uso de capacidades que no ha trabajado y confía en su eficiencia.
 
-- La propaganda, la alienación y la manipulación psicologica, debe ser delito de Lesa humanidad, y su masividad debe ser un agravante.
+- La propaganda, la alienación y la manipulación psicológica, deben ser delitos de Lesa humanidad, y su masividad y financiación millonaria, deben ser agravantes.
 
 - Si estás acostrumbado a moverte entre falsas apariencias, ya verás que risas entre realidades disimuladas.
 
@@ -256,7 +256,7 @@ Tools:
 
 - Podría decirte que soy cómo el indomable Will Hunting, pero me imagínarías en peleas de bar, cuándo solo te estaría diciéndo que puedo ir y volver llevándoos de paseo. Así que mejor no lo hago, porque además, después tendría que corregiros, haceros esquemas, y evidenciar la verdad hasta lo indefendible.
 
-- Ya lo digo un antiguo sabio: hay que estar loco para no querer inyectarte cosas del ayuntamiento.
+- Ya lo dijo un antiguo sabio: hay que estar loco para no querer inyectarte cosas del ayuntamiento.
 
 - Franco era muy malo, no cómo nosotros que nos gusta inyectar cosas a la gente mediante coacciones y maquinaria propagandística multimillonaria.
   

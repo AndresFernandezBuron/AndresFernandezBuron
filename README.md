@@ -67,9 +67,21 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - La democracia consiste en alienar a la sociedad, atemorizarla, hundirla y cuándo el abstencionismo se acerca a la mayoría, importar votantes de países con peor economía y retribuir su voto con el dinero de los nacionales.
 
-- La democracia a largo plazo requiere que todos sean funcionarios, o importaciones periódicas de votantes. Y para importar votantes, requiere que los países de origen tengan una economía más precaria qje la de destino.
+- La democracia a largo plazo requiere que todos sean funcionarios, o importaciones periódicas de votantes. Y para importar votantes, requiere que los países de origen tengan una economía más precaria que la de destino.
   
 - Los que ayudan a países con pobreza, pero con recursos naturales, nunca lo hacen mejorando sus economías.
+
+- Me cae mal la gente mala, pero peor me caen los malos que van de buenos.
+
+- Con el cobid aprendí que tengo que ser más selectivo y exigente con los demás.
+
+- Yo satisfago mis expectativas. Las tuyas quédatelas para tí, que tú no satisfaces las mías, ni las tuyas si fueras exigente.
+
+- Si la humanidad es un error de la naturaleza, la inteligencia es un error dentro de otro.
+
+- La gente sobrevalora sus capacidades, pero trabajarlas, mañana.
+
+- La propaganda, la alienación y la manipulación psicologica, debe ser delito de Lesa humanidad, y su masividad debe ser un agravante.
 
 </td></tr>
 

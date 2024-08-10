@@ -60,6 +60,10 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 - Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
 
 - Sea dictadura, sea democracia, los buenos son los del ayuntamiento y los medios de propaganda.
+
+- La política es el humo que tapa al estado, simulando la apariencia de cambio.
+
+- La democracia consiste en alienar a la sociedad, atemorizarla, hundirla y cuándo el abstencionismo se acerca a la mayoría, importar votantes de países con peor económía y retribuir su voto con el dinero de los nacionales.
   
 - Los que ayudan a países con pobreza, pero con recursos naturales, nunca lo hacen mejorando sus economías.
 

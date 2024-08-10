@@ -59,13 +59,15 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 	
 - Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
 
-- Sea dictadura, sea democracia, los buenos son los del ayuntamiento y los medios de propaganda.
+- Sea dictadura, sea democracia, los buenos están en el ayuntamiento y en los medios de propaganda.
 
 - La democracia alienando a la sociedad, es dictadura maquillada.
 
 - La democracia y la dictadura son un baile de máscaras.
 
-- La política es el humo que tapa al estado, simulando la apariencia de cambio.
+- La vida es un baile de máscaras y yo olvidé traer la mía.
+
+- La política es el humo que tapa al estado, simulando apariencia de cambio.
 
 - La economía es un sistema de intercambio, que el estado convierte en sistema de control social.
 
@@ -79,11 +81,15 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - Con el cobid aprendí que tengo que ser más selectivo y exigente con los demás.
 
-- Yo satisfago mis expectativas. Las tuyas quédatelas para tí, que tú no satisfaces las mías, ni las tuyas si fueras exigente.
+- Yo satisfago mis expectativas. Las tuyas quédatelas para tí, que tú no satisfaces las mías, ni satisfacerías las tuyas si fueras exigente.
 
-- Si la humanidad es un error de la naturaleza, la inteligencia es un error dentro de otro.
+- Si la humanidad es un error en la naturaleza, la inteligencia es un error dentro de otro.
 
 - La gente sobrevalora sus capacidades, pero trabajarlas, mañana.
+
+- La gente exige a los demás el 100% y a si mismos el 0%.
+
+- La gente hace uso de capacidades que no ha trabajado y confía en su eficiencia.
 
 - La propaganda, la alienación y la manipulación psicologica, debe ser delito de Lesa humanidad, y su masividad debe ser un agravante.
 
@@ -204,6 +210,8 @@ Tools:
 <tr><td colspan="2">
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
+
+- Estoy tan acostumbrado a la asimetría, que ni os voy a contar.
   
 - El estado está para poner farolas, no para que jueguen los tontos.
 

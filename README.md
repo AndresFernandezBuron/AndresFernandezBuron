@@ -182,6 +182,8 @@ Tools:
 <tr><td colspan="2">
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
+  
+- El estado está para poner farolas, no para que jueguen los tontos.
 
 - La política, en democracia y en dictadura, es muy simple. Si no te relacionas con alguien del ayuntamiento, te quedas sin comer.
 

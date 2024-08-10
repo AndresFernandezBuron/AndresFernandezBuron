@@ -66,6 +66,8 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 - La economía es un sistema de intercambio, que el estado convierte en sistema de control social.
 
 - La democracia consiste en alienar a la sociedad, atemorizarla, hundirla y cuándo el abstencionismo se acerca a la mayoría, importar votantes de países con peor economía y retribuir su voto con el dinero de los nacionales.
+
+- La democracia a largo plazo requiere que todos sean funcionarios, o importaciones periódicas de votantes. Y para importar votantes, requiere que los países de origen tengan una economía más precaria qje la de destino.
   
 - Los que ayudan a países con pobreza, pero con recursos naturales, nunca lo hacen mejorando sus economías.
 
@@ -196,6 +198,8 @@ Tools:
 - Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.
 
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
+  
+- En democracia, si los demás se tiran de un puente porque les coacciona el estado, y tú no lo haces, eres un negacionista.
 
 - Ante la duda, la propaganda con las subenciones más gordas.
   

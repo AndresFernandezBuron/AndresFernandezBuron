@@ -56,7 +56,9 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 <td valign="middle" colspan="2">
 
 <tr><td colspan="2">
-	
+
+- Bienvenidos a MI nivel ;)
+ 
 - Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
 
 - Sea dictadura, sea democracia, los buenos están en el ayuntamiento y en los medios de propaganda.
@@ -256,7 +258,7 @@ Por la culata y por el culete va a salir.
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
 - Al final os vais a cuadrar todos y no por un salario.
-
+  
 - Si te sientes presionado cuándo estoy en punto muerto, ya veras que risas si me haces meter marchas.
 
 - Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.

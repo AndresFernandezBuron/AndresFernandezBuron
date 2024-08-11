@@ -113,6 +113,8 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - Cúando tenía unos 20 me decían que tenía la madured y conocimiento de alguien de 40 o 60. Ahora tengo 35, y cuándo tú tengas 200 años, podrás tener el nivel que tengo yo ahora.
 
+- La diferencia entre un funcionario franquista y uno democrático, es el color de la propaganda.
+
 </td></tr>
 
 <tr><td align="center" valign="middle" colspan="2">

@@ -81,7 +81,7 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - Sin derecho a la autotutela, los derechos humamos son efectivamente, una quimera. Y si a tí nunca te los han secuestrado, tu opinión no vale nada. 
 
-- Si crees que la ventaja numérica te va a permitir joderme, se te van a caer los cojones al suelo.
+- Si crees que la ventaja numérica te va a permitir joderme, se te van a caer los cojones al suelo aunque tengas ovarios.
 
 - Existe el síndrome de Estocolmo, pero me da a mi en la nariz que existe otro que es todo lo contrario.
 

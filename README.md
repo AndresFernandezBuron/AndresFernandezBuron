@@ -61,6 +61,10 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - Sea dictadura, sea democracia, los buenos están en el ayuntamiento y en los medios de propaganda.
 
+- Yo escribía tratados jurídicos con 18 años, cuándo tú aún soñabas con ser respetado por trabajar en el ayuntamiento.
+
+- Yo me he metido a defender a desconocidos estando yo solo y en minoría y bajo mi propio riesgo. Y no porque recibiese órdenes ni cobrase. Así que tu criterio quédatelo para ti, que para lo que te ha servido, es para ser una cobaya de las farmacéuticas mediante desinformación y coacción estatal.
+
 - La democracia alienando a la sociedad, es dictadura maquillada.
 
 - La democracia y la dictadura son un baile de máscaras.

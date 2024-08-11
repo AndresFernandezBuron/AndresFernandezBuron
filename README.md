@@ -82,7 +82,7 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 - Me cae mal la gente mala, pero peor me caen los malos que van de buenos.
 
 - Si quieres que algo esté bien hecho, tienes que hacerlo tú mismo. Pero si lo que quieres es sobrevivir, más aún.
-
+  
 - Con el cobid aprendí que tengo que ser más selectivo y exigente con los demás.
 
 - Yo satisfago mis expectativas. Las tuyas quédatelas para tí, que tú no satisfaces las mías, ni satisfacerías las tuyas si fueras exigente.
@@ -100,6 +100,8 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 - Si estás acostrumbado a moverte entre falsas apariencias, ya verás que risas entre realidades disimuladas.
 
 - No vivo de cara a la galería, si no de cara a mi. A quién tengo que agradar es a mí.
+
+- La inteligencia es un peligro para un status quo mantenido por la ignorancia.
 
 </td></tr>
 
@@ -216,8 +218,14 @@ Tools:
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
 - Estoy tan acostumbrado a la asimetría, que ni os voy a contar.
+
+- El miedo y salir peridendo son lujos y no me los puedo permitir.
+
+- Mi vida vale más que pagar tu netflix a final de mes. No pongas a prueba mi contabilidad.
   
-- El estado está para poner farolas, no para que jueguen los tontos.
+- El estado está para poner farolas, no para que jueguen los tontos, ni para que se enmascaren los malvados.
+
+- En democracia, para poder defenderte de las ilegalidades (sanitarias, solidarias, y en general cualquiera de los buenos), tienes que ser juez. Porque a la policía pisar a un ciudadano le da igual porque son ordenes (ilegales, pero órdenes de oos buenos, pero a un juez, no.
 
 - La política, en democracia y en dictadura, es muy simple. Si no te relacionas con alguien del ayuntamiento, te quedas sin comer.
 

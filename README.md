@@ -107,6 +107,10 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - La inteligencia es un medio, no un fin.
 
+- Espero que no te agobie mi nivel multidisciplinar, porque soy una petsona tímida y discreta, y no has visto ni un 0,000000001%.
+
+- Cúando tenía unos 20 me decían que tenía la madured y conocimiento de alguien de 40 o 60. Ahora tengo 35, y cuándo tú tengas 200 años, podrás tener el nivel que tengo yo ahora.
+
 </td></tr>
 
 <tr><td align="center" valign="middle" colspan="2">

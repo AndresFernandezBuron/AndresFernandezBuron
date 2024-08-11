@@ -255,6 +255,8 @@ Por la culata y por el culete va a salir.
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
+- Al final os vais a cuadrar todos y no por un salario.
+
 - Si te sientes presionado cuándo estoy en punto muerto, ya veras que risas si me haces meter marchas.
 
 - Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.

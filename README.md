@@ -253,7 +253,7 @@ Por la culata y por el culete va a salir.
 
 - Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.
 
-- Si no has te gustan las dos tazas, ya verás cuándo te empapes en el manantial.
+- Si no te gustan las dos tazas, ya verás cuándo te empapes en el manantial.
 
 - No hay mejor defensa que conocer la mente del de enfrente. Saber lo que puede pensar y hacer. Conocer todo el abanico de posibilidades y tener varias posibles soluciones para cada una.
 
@@ -289,7 +289,7 @@ Por la culata y por el culete va a salir.
 
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
 
-- En democracia, para poder defenderte de las ilegalidades (sanitarias, solidarias, y en general cualquiera de las de los buenos), tienes que ser juez. Porque a la policía pisar a un ciudadano le da igual porque son írdenes (ilegales, pero órdenes de los buenos), pero a un juez, no.
+- En democracia, para poder defenderte de las ilegalidades (sanitarias, solidarias, y en general cualquiera de las de los buenos), tienes que ser juez. Porque a la policía pisar a un ciudadano le da igual porque son órdenes (ilegales, pero de los buenos), pero a un juez, no.
   
 - En democracia, si los demás se tiran de un puente porque les coacciona el estado, y tú no lo haces, eres un negacionista.
 

@@ -63,7 +63,7 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - La democracia alienando a la sociedad, es dictadura maquillada.
 
-- La democracia y la dictadura son un baile de máscaras.
+- La democracia y la dictadura son un baile de máscaras, pero los cojones si que me los traje.
 
 - La vida es un baile de máscaras y yo olvidé traer la mía.
 

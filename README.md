@@ -245,6 +245,8 @@ Por la culata y por el culete va a salir.
 
 - Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.
 
+- Si no has te gustan las dos tazas, ya verás cuándo te empapes en el manantial.
+
 - No hay mejor defensa que conocer la mente del de enfrente. Saber lo que puede pensar y hacer. Conocer todo el abanico de posibilidades y tener varias posibles soluciones para cada una.
 
 - Siempre he tenido la capacidad de completar las frases que otros no terminan.

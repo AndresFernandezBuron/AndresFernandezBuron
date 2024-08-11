@@ -109,11 +109,13 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - La inteligencia es un medio, no un fin.
 
-- Espero que no te agobie mi nivel multidisciplinar, porque soy una petsona tímida y discreta, y no has visto ni un 0,000000001%.
+- Espero que no te agobie mi nivel multidisciplinar, porque soy una persona tímida y discreta, y no has visto ni un 0,000000001%.
 
 - Cúando tenía unos 20 me decían que tenía la madured y conocimiento de alguien de 40 o 60. Ahora tengo 35, y cuándo tú tengas 200 años, podrás tener el nivel que tengo yo ahora.
 
 - La diferencia entre un funcionario franquista y uno democrático, es el color de la propaganda.
+
+- En dictadura, pensar es de rojos. Y en democracia, es de fachas. Y los buenos? Orbitando alrededor del ayuntamiento.
 
 </td></tr>
 
@@ -257,9 +259,9 @@ Por la culata y por el culete va a salir.
 
 - Siempre he tenido la capacidad de completar las frases que otros no terminan.
 
-- Érase una vez un grupo de llenas que vieron una serpiente y mandaron a una de ellas cómo exploradora. A la exploradora no le gustó, y menos mal, porque no era una serpiente, si no el rabo de un elefante.
+- Érase una vez un grupo de hienas que vieron una serpiente y mandaron a una de ellas cómo exploradora. A la exploradora no le gustó, y menos mal, porque no era una serpiente, si no el rabo de un elefante.
   
-- Había oído que hay que ser el mejor, en algo, lo que sea. Y cómo yo soy muy indeciso, soy el mejor en todo lo que hago.
+- Había oído que hay que ser el mejor, en algo, en lo que sea. Y cómo yo soy muy indeciso, soy el mejor en todo lo que hago.
 
 - La vida es un baile de máscaras y yo olvidé traer la mía, pero los cojones si los traje.
 
@@ -287,7 +289,7 @@ Por la culata y por el culete va a salir.
 
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
 
-- En democracia, para poder defenderte de las ilegalidades (sanitarias, solidarias, y en general cualquiera de los buenos), tienes que ser juez. Porque a la policía pisar a un ciudadano le da igual porque son ordenes (ilegales, pero órdenes de los buenos), pero a un juez, no.
+- En democracia, para poder defenderte de las ilegalidades (sanitarias, solidarias, y en general cualquiera de las de los buenos), tienes que ser juez. Porque a la policía pisar a un ciudadano le da igual porque son írdenes (ilegales, pero órdenes de los buenos), pero a un juez, no.
   
 - En democracia, si los demás se tiran de un puente porque les coacciona el estado, y tú no lo haces, eres un negacionista.
 

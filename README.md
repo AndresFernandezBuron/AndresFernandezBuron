@@ -238,6 +238,10 @@ Por la culata y por el culete va a salir.
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
 - Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.
+  
+- Había oído que hay que ser el mejor, en algo, lo que sea. Y cómo yo soy muy indeciso, soy el mejor en todo lo que hago.
+
+- Creía en dios por lo que me permitía, y dejé de creer en él viendo que a otros no. Y la verdad es que fue porque la incapacidad de otros me perjudicaba a mi.
 
 - El país va genial, y eso es mérito de políticos, funcionarios y votantes.
 

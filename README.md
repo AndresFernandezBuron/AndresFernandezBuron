@@ -63,9 +63,7 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - La democracia alienando a la sociedad, es dictadura maquillada.
 
-- La democracia y la dictadura son un baile de máscaras, pero los cojones si que me los traje.
-
-- La vida es un baile de máscaras y yo olvidé traer la mía.
+- La democracia y la dictadura son un baile de máscaras.
 
 - La política es el humo que tapa al estado, simulando apariencia de cambio.
 
@@ -243,6 +241,8 @@ Por la culata y por el culete va a salir.
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
+- Si te sientes presionado cuándo estoy en punto muerto, ya veras que risas si me haces meter marchas.
+
 - Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.
 
 - Si no has te gustan las dos tazas, ya verás cuándo te empapes en el manantial.
@@ -254,6 +254,8 @@ Por la culata y por el culete va a salir.
 - Érase una vez un grupo de llenas que vieron una serpiente y mandaron a una de ellas cómo exploradora. A la exploradora no le gustó, y menos mal, porque no era una serpiente, si no el rabo de un elefante.
   
 - Había oído que hay que ser el mejor, en algo, lo que sea. Y cómo yo soy muy indeciso, soy el mejor en todo lo que hago.
+
+- La vida es un baile de máscaras y yo olvidé traer la mía, pero los cojones si los traje.
 
 - Creía en dios por lo que me permitía, y dejé de creer en él viendo que a otros no. Y la verdad es que fue porque la incapacidad de otros me perjudicaba a mi.
 

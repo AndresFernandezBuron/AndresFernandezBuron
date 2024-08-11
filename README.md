@@ -215,6 +215,22 @@ Tools:
 
 <tr><td align="center" valign="middle" colspan="2">
 
+**Los buenos:**
+</tr>
+<tr><td colspan="2">
+
+<tr><td align="center" valign="middle" colspan="2">
+
+https://m.youtube.com/watch?v=0Tekeg83Daw&pp=ygUlZXJ0emFpbmEgc3NuIGZyYW5jaXNjbyBhYnVzbyBwb2xpY2lhbA%3D%3D
+
+Tengo aún experiencias en el tintero, que yo las mato callando ;)
+
+Por la culata y por el culete va a salir.
+
+</td></tr>
+
+<tr><td align="center" valign="middle" colspan="2">
+
 **Fun facts:**
 </tr>
 <tr><td colspan="2">

@@ -223,6 +223,8 @@ Tools:
 
 https://m.youtube.com/watch?v=0Tekeg83Daw&pp=ygUlZXJ0emFpbmEgc3NuIGZyYW5jaXNjbyBhYnVzbyBwb2xpY2lhbA%3D%3D
 
+https://www.google.com/search?q=ertzainas+traficantes+detenidos+fuera+del+pais+vasco&ie=utf-8&oe=utf-8&client=firefox-b-m
+
 Tengo aún experiencias en el tintero, que yo las mato callando ;)
 
 Por la culata y por el culete va a salir.
@@ -238,6 +240,12 @@ Por la culata y por el culete va a salir.
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
 - Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.
+
+- No hay mejor defensa que conocer la mente del de enfrente. Saber lo que puede pensar y hacer. Conocer todo el abanico de posibilidades y tener varias posibles soluciones para cada una.
+
+- Siempre he tenido la capacidad de completar las frases que otros no terminan.
+
+- Érase una vez un grupo de llenas que vieron una serpiente y mandaron a una de ellas cómo exploradora. A la exploradora no le gustó, y menos mal, porque no era una serpiente, si no el rabo de un elefante.
   
 - Había oído que hay que ser el mejor, en algo, lo que sea. Y cómo yo soy muy indeciso, soy el mejor en todo lo que hago.
 
@@ -368,6 +376,14 @@ Y si hay alguno que no sea un pusilánime, ya le prepararemos alguna cama o alg�
 Ah, y si después de putearles y preparárles mil y una, se les hinchan las pelotas, decimos que son malos y drapetómanos.
 Porque si, porque somos de los buenos, los antifascistas.
 Los medios estatales son nuestros y lo que hagamos da igual, aquí lo que importa es que somos los buenos.
+
+- 80 mil veces he acabado un debate diciendo: Tú dices A, y yo te digo que estas equivocado en B y que realmente era C. Y antes de que me repliquen, le digo lo que argumentos podría utilizar para rebatirme y cuáles serían las causas de que esos argumentos sean falsos.
+
+- 80 mil veces he conseguido que la gente no me mienta, demostrándoles que estaban mintiendo.
+
+- 80 mil veces me han preguntado cómo sabía que era mentira lo que estaban diciendo.
+
+- 80 mil veces he explicado que me he cincelado yo mismo y que tengo todas las capacidades que deseaba.
 
 - If you don't like it, you don't understand it. 🤡
 

@@ -103,6 +103,10 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 - La inteligencia es un peligro para un status quo mantenido por la ignorancia.
 
+- Al tonto le hace gracia que otro sea más tonto. Y al inteligente le da pena que otro lo sea menos.
+
+- La inteligencia es un medio, no un fin.
+
 </td></tr>
 
 <tr><td align="center" valign="middle" colspan="2">
@@ -217,6 +221,10 @@ Tools:
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
+- Llevaba muchos años sin leer y escribir, así que disculpa el bajo nivel, y tranquilo que lo aumento rápido.
+
+- El país va genial, y eso es mérito de políticos, funcionarios y votantes.
+
 - Estoy tan acostumbrado a la asimetría, que ni os voy a contar.
 
 - El miedo y salir peridendo son lujos y no me los puedo permitir.
@@ -224,8 +232,6 @@ Tools:
 - Mi vida vale más que pagar tu netflix a final de mes. No pongas a prueba mi contabilidad.
   
 - El estado está para poner farolas, no para que jueguen los tontos, ni para que se enmascaren los malvados.
-
-- En democracia, para poder defenderte de las ilegalidades (sanitarias, solidarias, y en general cualquiera de los buenos), tienes que ser juez. Porque a la policía pisar a un ciudadano le da igual porque son ordenes (ilegales, pero órdenes de oos buenos, pero a un juez, no.
 
 - La política, en democracia y en dictadura, es muy simple. Si no te relacionas con alguien del ayuntamiento, te quedas sin comer.
 
@@ -238,6 +244,8 @@ Tools:
 - Hola soy un funcionario del régimen democrático y soy de los buenos, hago las cosas por tu bien. No cómo los del régimen franquista, que lo hacían por una nómina.
 
 - Hola, soy la democracia, la buena, cómo la peor de Montesquieu.
+
+- En democracia, para poder defenderte de las ilegalidades (sanitarias, solidarias, y en general cualquiera de los buenos), tienes que ser juez. Porque a la policía pisar a un ciudadano le da igual porque son ordenes (ilegales, pero órdenes de los buenos), pero a un juez, no.
   
 - En democracia, si los demás se tiran de un puente porque les coacciona el estado, y tú no lo haces, eres un negacionista.
 

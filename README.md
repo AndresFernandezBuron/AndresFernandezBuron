@@ -60,7 +60,7 @@ El estado cómo acuerdo social y no cómo sistema instrumentalizador de la opres
 
 El estado cómo instrumento social, y no cómo instrumentalizador de la sociedad.
 
-El estado cómo garante de la Justicia y el bien, y no cómo ofuscador de las mismas.
+El estado cómo organismo transparente, garante de la Justicia y el bien; y no cómo ofuscador de las mismas.
 
 **Leyes fundamentales:**
 
@@ -70,7 +70,13 @@ El estado cómo garante de la Justicia y el bien, y no cómo ofuscador de las mi
 
 3° Castigo ejemplarizante de la manipulación, ocultación e instrumentalización de la información.
 
-4° Continuará ...
+4° Democracia directa y transparente y voluntaria para absolutamente todo. En ciertos ámbitos sensibles, sin carácter vinculante.
+
+5° Transparencia y publicidad de todas los procesos democráticos.
+
+6° Castigo ejemplarizante para quién manipule los procesos democráticos.
+
+5° Continuará ...
 
 </td></tr>
 

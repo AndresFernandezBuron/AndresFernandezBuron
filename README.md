@@ -78,7 +78,7 @@ El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
 
 6° Castigo ejemplarizante para quién manipule los procesos democráticos.
 
-N° Continuará ...
+7° Continuará ...
 
 </td></tr>
 

@@ -52,18 +52,21 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 <tr><td align="center" valign="middle" colspan="2">
 
-**El modelo estatal **
+**El modelo estatal**
 </td></tr>
 <td valign="middle" colspan="2">
 
 El estado cómo acuerdo social y no cómo sistema instrumentalizador de la opresión.
 
-Leyes fundamentales:
+**Leyes fundamentales:**
+
 1° Permitir y facilitar al individuo protegerse de cualquier peligro, incluyendo los generados por el estado. 
 
 2° Castigo ejemplarizante a quién utilice el estado para beneficiarse a costa de perjudicar a los ciudadanos.
 
-3° Continuará ...
+3° Castigo ejemplarizante de la manipulación, ocultación e instrumentalización de la información.
+
+4° Continuará ...
 
 </td></tr>
 

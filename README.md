@@ -60,6 +60,8 @@ El estado cómo acuerdo social y no cómo sistema instrumentalizador de la opres
 
 El estado cómo instrumento social, y no cómo instrumentalizador de la sociedad.
 
+El estado cómo garante de la Justicia y el bien, y no cómo ofuscador de las mismas.
+
 **Leyes fundamentales:**
 
 1° Permitir y facilitar al individuo protegerse de cualquier peligro, incluyendo los generados por el estado. 

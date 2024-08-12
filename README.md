@@ -62,6 +62,8 @@ El estado cómo instrumento social, y no cómo instrumentalizador de la sociedad
 
 El estado cómo organismo transparente, garante de la Justicia y el bien; y no cómo ofuscador de las mismas.
 
+El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
+
 **Leyes fundamentales:**
 
 1° Permitir y facilitar al individuo protegerse de cualquier peligro, incluyendo los generados por el estado. 

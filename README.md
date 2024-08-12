@@ -76,7 +76,7 @@ El estado cómo organismo transparente, garante de la Justicia y el bien; y no c
 
 6° Castigo ejemplarizante para quién manipule los procesos democráticos.
 
-5° Continuará ...
+N° Continuará ...
 
 </td></tr>
 

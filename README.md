@@ -70,9 +70,9 @@ El estado cómo organismo transparente, garante de la Justicia y el bien; y no c
 
 3° Castigo ejemplarizante de la manipulación, ocultación e instrumentalización de la información.
 
-4° Democracia directa y transparente y voluntaria para absolutamente todo. En ciertos ámbitos sensibles, sin carácter vinculante.
+4° Democracia directa, transparente y voluntaria para absolutamente todo. En ciertos ámbitos sensibles, sin carácter vinculante.
 
-5° Transparencia y publicidad de todas los procesos democráticos.
+5° Transparencia y publicidad de todos los procesos democráticos.
 
 6° Castigo ejemplarizante para quién manipule los procesos democráticos.
 

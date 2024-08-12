@@ -58,6 +58,8 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 El estado cómo acuerdo social y no cómo sistema instrumentalizador de la opresión.
 
+El estado cómo instrumento social, y no cómo instrumentalizador de la sociedad.
+
 **Leyes fundamentales:**
 
 1° Permitir y facilitar al individuo protegerse de cualquier peligro, incluyendo los generados por el estado. 

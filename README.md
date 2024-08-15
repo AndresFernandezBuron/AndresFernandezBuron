@@ -292,7 +292,7 @@ Por la culata y por el culete va a salir.
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
-- Me quejo de lo de hace cien años. Y de lo de ahora? Ya se quejarán mis tataranietos, mientras callan ante su presente, a la vez que odien al que ose defenderse.
+- Me quejo de lo de hace cien años. Y de lo de ahora? Ya se quejarán mis tataranietos, mientras callen ante su presente, a la vez que odien al que ose defenderse.
 
 - Sé tú mismo, a menos que seas diferente a la masa moldeada con la propaganda.
 

@@ -291,7 +291,9 @@ Por la culata y por el culete va a salir.
 <tr><td colspan="2">
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
-
+  
+- No os debéis haber vacunado lo suficiente, porque el 5G parece que va a manivela.
+  
 - Con Franco soy franquista y con democracia soy democracista, yo, a dónde muevan el péndulo.
 
 - Me quejo de lo de hace cien años. Y de lo de ahora? Ya se quejarán mis tataranietos, mientras callen ante su presente, a la vez que odien al que ose defenderse.
@@ -567,6 +569,8 @@ And 100,000 to believe it.
 <tr><td colspan="2">
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
+
+Payo malo - Ná má sé cantá - https://www.youtube.com/watch?v=6ECncvl7HNk
 
 Chinatown ft Roketer - Es nuestro - https://www.youtube.com/watch?v=tbgN6RbMGVw
 

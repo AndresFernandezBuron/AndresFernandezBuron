@@ -294,7 +294,7 @@ Por la culata y por el culete va a salir.
   
 - No os debéis haber vacunado lo suficiente, porque el 5G parece que va a manivela.
   
-- Gracias al enchufismo y al miedo al trabajo y al talento, para descargar 1 MB hará falta 20G. 
+- Gracias al enchufismo, y al miedo al trabajo y al talento, para descargar 1 MB hará falta 20h y 20G. 
   
 - Con Franco soy franquista y con democracia soy democracista, yo, a dónde muevan el péndulo.
 

@@ -58,6 +58,7 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 <tr><td align="center" valign="middle" colspan="2">
 
+Éste ni mete goles, ni tiene salvoconducto cobiz.  Y que mala suerte, que lo grabasen.
 https://m.youtube.com/watch?v=0Tekeg83Daw&pp=ygUlZXJ0emFpbmEgc3NuIGZyYW5jaXNjbyBhYnVzbyBwb2xpY2lhbA%3D%3D
 
 https://www.google.com/search?q=ertzainas+traficantes+detenidos+fuera+del+pais+vasco&ie=utf-8&oe=utf-8&client=firefox-b-m

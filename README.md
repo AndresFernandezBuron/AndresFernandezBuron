@@ -292,6 +292,8 @@ Tools:
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
   
+- Que te perdone Dios, que aquí todos los gatos son pardos; y algunos, más que otros.
+  
 - No os debéis haber vacunado lo suficiente, porque el 5G parece que va a manivela.
   
 - Gracias al enchufismo y al miedo al trabajo y al talento, para descargar 1 MB hará falta 20G. 

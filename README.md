@@ -98,8 +98,6 @@ El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
 
 6° Castigo ejemplarizante para quién manipule los procesos democráticos.
 
-7° Continuará ...
-
 </td></tr>
 
 <tr><td colspan="2">
@@ -140,7 +138,7 @@ El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
 
 - Si crees que la ventaja numérica te va a permitir joderme, se te van a caer los cojones al suelo.
 
-- Existe el síndrome de Estocolmo, pero me da a mi en la nariz que existe otro que es todo lo contrario.
+- Existe el síndrome de Estocolmo, pero me da a mi en la nariz que existe otro que es todo lo contrario. Y si no tiene nombre, se me ocurre uno.
 
 - Me cae mal la gente mala, pero peor me caen los malos que van de buenos.
 
@@ -182,7 +180,7 @@ El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
 
 <tr><td align="center" valign="middle" colspan="2">
 
-**Críticas de alguien inteligente al estado:**
+**El peor estado de Montesquieu:**
 </td></tr>
 <td valign="middle" colspan="2">
 	

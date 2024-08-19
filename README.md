@@ -290,7 +290,7 @@ Tools:
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
   
-- Que te perdone y libre Dios, que aquí todos los gatos son pardos; y algunos, más que otros.
+- Que te perdone y libre Dios, que aquí todos los gatos son pardos; y algunos, más que otros y sin necesidad de noche.
   
 - No os debéis haber vacunado lo suficiente, porque el 5G parece que va a manivela.
   

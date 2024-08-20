@@ -66,15 +66,15 @@ Encontrar los detenidos dentro de su propia jurisdicción, es cómo encontrar un
 
 https://www.google.com/search?q=ertzainas+traficantes+detenidos+fuera+del+pais+vasco&ie=utf-8&oe=utf-8&client=firefox-b-m
 
-Las vacunas más probadas
-https://www.elcorreo.com/sociedad/salud/covid-ninos-esla-20211211175538-nt.html
+Las """vacunas""" más probadas
+- https://www.elcorreo.com/sociedad/salud/covid-ninos-esla-20211211175538-nt.html
+
+El ARN negativo - https://www.google.com/search?client=firefox-b-m&sca_esv=19b551ade1306bfb&q=otegi+vacunar+vacunar+y+vacunar&oq=otegi+vacunar+vacunar+y+vacunar&aqs=heirloom-srp..
 
 El fotógrafo más famoso - https://www.google.com/search?q=kote+kabezudo&ie=utf-8&oe=utf-8&client=firefox-b-m
 
 De aquí, mejor leer lo que no han publicado ellos recientemente - 
 https://www.google.com/search?client=firefox-b-m&sca_esv=19b551ade1306bfb&q=pnv+visita+alemania+nazi&oq=pnv+visita+alemania+nazi&aqs=heirloom-srp..
-
-El ARN negativo - https://www.google.com/search?client=firefox-b-m&sca_esv=19b551ade1306bfb&q=otegi+vacunar+vacunar+y+vacunar&oq=otegi+vacunar+vacunar+y+vacunar&aqs=heirloom-srp..
 
 El terrorismo cómo control social - https://m.youtube.com/results?sp=mAEA&search_query=documental+gladio
 

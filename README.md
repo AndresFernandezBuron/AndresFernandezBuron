@@ -305,7 +305,7 @@ Tools:
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
 
-- Apartaos, que va a pasar el elefante...
+- Apartaos, que va a pasar el elefante de los libros.
 
 - Podría escribir un libro y titularlo, historia de un idealista secuestrado, torturado y coaccionado por gudaris en el Bilbao de 1984.
   

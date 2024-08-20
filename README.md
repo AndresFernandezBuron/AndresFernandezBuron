@@ -303,7 +303,7 @@ Tools:
 
 - Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
   
-- Podría escribir un libro y titularlo, historia de un idealista secuestrado por gudaris en el Bilbao de 1984.
+- Podría escribir un libro y titularlo, historia de un idealista secuestrado, torturado y coaccionado por gudaris en el Bilbao de 1984.
   
 - Hablando con un chaval cuyo nombre contiene TZ, me dijo que él se había vacunado tres veces, cada vacuna, de una empresa/marca diferente. Le dije que yo ninguna. Y me dijo: Pero si no, no te dejaban entrar a los bares.
   

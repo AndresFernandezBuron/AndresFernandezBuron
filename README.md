@@ -66,6 +66,8 @@ Encontrar los detenidos dentro de su propia jurisdicción, es cómo encontrar un
 
 https://www.google.com/search?q=ertzainas+traficantes+detenidos+fuera+del+pais+vasco&ie=utf-8&oe=utf-8&client=firefox-b-m
 
+Las buenas oposiciones - https://www.google.com/search?q=oposiciones+vascas+amañadas&ie=utf-8&oe=utf-8
+
 Las """vacunas""" más probadas - https://www.elcorreo.com/sociedad/salud/covid-ninos-esla-20211211175538-nt.html
 
 El ARN negativo - https://www.google.com/search?client=firefox-b-m&sca_esv=19b551ade1306bfb&q=otegi+vacunar+vacunar+y+vacunar&oq=otegi+vacunar+vacunar+y+vacunar&aqs=heirloom-srp..

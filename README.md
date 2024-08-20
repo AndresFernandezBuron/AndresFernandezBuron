@@ -593,6 +593,8 @@ Morodo - Bad bwoys - https://m.youtube.com/watch?v=MGZyk8LqzbI&pp=ygUQbW9yb2RvIG
 
 Juan Pro - Estilo propio - https://m.youtube.com/watch?v=cBCE35SCi1s&pp=ygUWanVhbiBwcm8gZXN0aWxvIHByb3Bpbw%3D%3D
 
+Juan pro - Pleyas de playa - https://m.youtube.com/watch?v=5mlEzDTzoRs
+
 Gordo master ft Jefe de la m - Vuelve - https://m.youtube.com/watch?v=2dRWLqgzhQ0&pp=ygUTamVmZSBkZSBsYSBtIHZ1ZWx2ZQ%3D%3D
 
 Jefe de la m - Quién es Bobby Lo? - https://m.youtube.com/watch?v=XIkn5XLzE3g&list=OLAK5uy_lj-xk9Jaeti-qJfcpWHJNDSxc3hyru92I&index=7&pp=8AUB

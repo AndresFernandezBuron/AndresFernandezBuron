@@ -306,6 +306,8 @@ Tools:
 - Podría escribir un libro y titularlo, historia de un idealista secuestrado, torturado y coaccionado por gudaris en el Bilbao de 1984.
   
 - Hablando con un chaval cuyo nombre contiene TZ, me dijo que él se había vacunado tres veces, cada vacuna, de una empresa/marca diferente. Le dije que yo ninguna. Y me dijo: Pero si no, no te dejaban entrar a los bares.
+
+- Cuándo el estado violaba los Derechos Fundamentales ratificados en la Constitución española, oí que la gente estaba golpeándo cacerolas. Y pensé, bueno, son vascos, luchadores de la libertad, estarán reclamando sus Derechos y pidiéndo responsabilidades. Al final, resultó ser una cacerolada contra el rey. Y pensé, más borregos berreando contra uno al que les señalan, mientras son pisoteados por otros mil a los que aplauden. Los mitos no habitan fuera de la caverna.
   
 - Que te perdone y libre Dios, que aquí todos los gatos son pardos; y algunos, más que otros y sin necesidad de noche.
   

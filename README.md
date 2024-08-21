@@ -611,9 +611,11 @@ Masstone - Se abre el telón - https://m.youtube.com/watch?v=62wXzaEcR8A&pp=ygUI
 
 Masstone - Ni más ni menos - https://m.youtube.com/watch?v=-80AqmfKGZ0&pp=ygUIbWFzc3RvbmU%3D
 
-Los jondo - La que te dije - https://m.youtube.com/watch?v=75eQpaUqEO4&pp=ygUJbG9zIGpvbmRv
+CPV - Cuenta - https://m.youtube.com/watch?v=TNNJNkMlqlg
 
 CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
+
+Los jondo - La que te dije - https://m.youtube.com/watch?v=75eQpaUqEO4&pp=ygUJbG9zIGpvbmRv
 
 Los jondo - Los yonson fai - https://m.youtube.com/watch?v=XFxsZUn_wuI
 

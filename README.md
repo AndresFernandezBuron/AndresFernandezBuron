@@ -615,6 +615,8 @@ CPV - Cuenta - https://m.youtube.com/watch?v=TNNJNkMlqlg
 
 CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
 
+Frankt ft Zénit - La verdad - https://m.youtube.com/watch?v=eZvomUiPD1U
+
 Los jondo - La que te dije - https://m.youtube.com/watch?v=75eQpaUqEO4&pp=ygUJbG9zIGpvbmRv
 
 Los jondo - Los yonson fai - https://m.youtube.com/watch?v=XFxsZUn_wuI

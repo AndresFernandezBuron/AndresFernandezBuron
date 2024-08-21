@@ -311,9 +311,9 @@ Tools:
   
 - Hablando con un chaval cuyo nombre contiene TZ, me dijo que él se había vacunado tres veces, cada vacuna, de una empresa/marca diferente. Le dije que yo ninguna. Y me dijo: Pero si no, no te dejaban entrar a los bares.
 
-- Cuándo el estado violaba los Derechos Fundamentales ratificados en la Constitución española, oí que la gente estaba golpeándo cacerolas. Y pensé, bueno, son vascos, luchadores de la libertad, estarán reclamando sus Derechos y pidiéndo responsabilidades. Al final, resultó ser una cacerolada contra el rey. Y pensé, más borregos berreando contra uno al que les señalan, mientras son pisoteados por otros mil a los que aplauden. Los mitos no habitan fuera de la caverna.
+- Cuándo el estado violaba los Derechos Fundamentales ratificados en la Constitución española, tras la muerte de Franco, oí que la gente estaba golpeándo cacerolas. Y pensé, bueno, son vascos, luchadores de la libertad, estarán reclamando sus Derechos y pidiéndo responsabilidades. Al final, resultó ser una cacerolada contra el rey. Y pensé, más borregos berreando contra uno al que les señalan, mientras son pisoteados por otros mil a los que aplauden. Los mitos no habitan fuera de la caverna.
   
-- Que te perdone y libre Dios, que aquí todos los gatos son pardos; y algunos, más que otros y sin necesidad de noche.
+- Que te perdone y libre Dios, que aquí todos los gatos son pardos; y algunos, más que otros y sin necesidad de ocultárse de noche.
   
 - No os debéis haber vacunado lo suficiente, porque el 5G parece que va a manivela.
   
@@ -594,6 +594,20 @@ And 100,000 to believe it.
 <tr><td colspan="2">
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
+
+Juan pro - Fame! - https://m.youtube.com/watch?v=AmSJ-H07OW4
+
+Jesuly - La ventana - https://m.youtube.com/watch?v=Tk7Sm8R1iyo
+
+Jesuly - Una poya en forma de ra - https://m.youtube.com/watch?v=gVvHy9ByMM0
+
+Jesuly ft Juaninacka y Niko - Famoseo - https://m.youtube.com/watch?v=3R7LyMH3aYQ
+
+Jesuly ft Puto largo y Legendario - Estrellitas - https://m.youtube.com/watch?v=eX3xeIhVGMA
+
+Jesuly - Los kie (vol. 1) - https://m.youtube.com/watch?v=8-8H7w0C9EA&pp=ygUNbG9zIGtpZSB2b2wgMQ%3D%3D
+
+Jesuly - Los kie (vol. 2) - https://m.youtube.com/watch?v=7FrD5J6wd_0
 
 Tego Calderón - Abayarde gracias - https://m.youtube.com/watch?v=aQanlUjB22c&pp=ygUedGVnbyBjYWxkZXJvbiBhYmF5YXJkZSBncmFjaWFz
 

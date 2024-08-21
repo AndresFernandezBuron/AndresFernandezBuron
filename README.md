@@ -599,6 +599,14 @@ Los jondo - Misión imposible - https://m.youtube.com/watch?v=QSQublzF6KY
 
 Los jondo - Vida rap - https://m.youtube.com/watch?v=pMPRKg8bFAE&pp=ygUabG9zIGpvbmRvIG5vIHRlbmVpIG5pIHB1dGE%3D
 
+VKR - Alta fidelidad - https://m.youtube.com/watch?v=_SZw-YJNpPE
+
+VKR - Fines lucrativos - https://m.youtube.com/watch?v=1sl0rtQq8Nc
+
+VKR - En el este - https://m.youtube.com/watch?v=9ypsxKkfdkU&pp=ygUOdmtyIGVuIGVsIGVzdGU%3D
+
+VKR - Contra elementos - https://m.youtube.com/watch?v=V5ktuq2sFtc
+
 Masstone - Se abre el telón - https://m.youtube.com/watch?v=62wXzaEcR8A&pp=ygUIbWFzc3RvbmU%3D
 
 Masstone - Ni más ni menos - https://m.youtube.com/watch?v=-80AqmfKGZ0&pp=ygUIbWFzc3RvbmU%3D

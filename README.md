@@ -595,6 +595,10 @@ And 100,000 to believe it.
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
+Masstone - Se abre el telón - https://m.youtube.com/watch?v=62wXzaEcR8A&pp=ygUIbWFzc3RvbmU%3D
+
+Masstone - Ni más ni menos - https://m.youtube.com/watch?v=-80AqmfKGZ0&pp=ygUIbWFzc3RvbmU%3D
+
 Juan pro - Fame! - https://m.youtube.com/watch?v=AmSJ-H07OW4
 
 Jesuly - La ventana - https://m.youtube.com/watch?v=Tk7Sm8R1iyo

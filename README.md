@@ -597,6 +597,8 @@ Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
 Los jondo - Misión imposible - https://m.youtube.com/watch?v=QSQublzF6KY
 
+Los jondo - Vida rap - https://m.youtube.com/watch?v=pMPRKg8bFAE&pp=ygUabG9zIGpvbmRvIG5vIHRlbmVpIG5pIHB1dGE%3D
+
 Masstone - Se abre el telón - https://m.youtube.com/watch?v=62wXzaEcR8A&pp=ygUIbWFzc3RvbmU%3D
 
 Masstone - Ni más ni menos - https://m.youtube.com/watch?v=-80AqmfKGZ0&pp=ygUIbWFzc3RvbmU%3D

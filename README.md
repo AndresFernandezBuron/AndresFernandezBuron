@@ -599,6 +599,10 @@ Masstone - Se abre el telón - https://m.youtube.com/watch?v=62wXzaEcR8A&pp=ygUI
 
 Masstone - Ni más ni menos - https://m.youtube.com/watch?v=-80AqmfKGZ0&pp=ygUIbWFzc3RvbmU%3D
 
+Los jondo - La que te dije - https://m.youtube.com/watch?v=75eQpaUqEO4&pp=ygUJbG9zIGpvbmRv
+
+Los jondo - Los yonson fai - https://m.youtube.com/watch?v=XFxsZUn_wuI
+
 Juan pro - Fame! - https://m.youtube.com/watch?v=AmSJ-H07OW4
 
 Jesuly - La ventana - https://m.youtube.com/watch?v=Tk7Sm8R1iyo

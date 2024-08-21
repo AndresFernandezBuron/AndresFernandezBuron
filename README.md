@@ -613,6 +613,8 @@ Masstone - Ni más ni menos - https://m.youtube.com/watch?v=-80AqmfKGZ0&pp=ygUIb
 
 Los jondo - La que te dije - https://m.youtube.com/watch?v=75eQpaUqEO4&pp=ygUJbG9zIGpvbmRv
 
+CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
+
 Los jondo - Los yonson fai - https://m.youtube.com/watch?v=XFxsZUn_wuI
 
 Juan pro - Fame! - https://m.youtube.com/watch?v=AmSJ-H07OW4

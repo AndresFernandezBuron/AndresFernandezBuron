@@ -128,8 +128,6 @@ El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
 
 <tr><td colspan="2">
 
-- Bienvenidos a MI nivel ;)
-
 - Los régimenes malos siempre son de ayer o ajenos. El individuo es débil, y la queja, mañana. Pero hoy, yo también me quejé ayer.
 
 - Sea dictadura, sea democracia, los buenos están en el ayuntamiento y en los medios de propaganda.
@@ -225,7 +223,7 @@ De las cuáles, un gran porcentaje necesita ese dinero que se le sustrae para de
 Y una abstención mayor del 50%, debería disolver también las instituciones.
 
 Nota:
-Si te pica, pide la réplica de ocho tomos.
+Si te pica, pide la réplica de ocho tomos, que igual te llevas la de 28.
 
 </td>
 <tr><td align="center" valign="middle" colspan="2">
@@ -311,6 +309,12 @@ Tools:
 - Apartaos, que va a pasar el elefante de los libros.
 
 - Podría escribir un libro y titularlo, historia de un idealista secuestrado, torturado y coaccionado por gudaris en el Bilbao de 1984.
+
+- En mi vida he visto nada tan fascista cómo criarte en una zona de un país, en el que si dices que te gusta el país, eres un facha y un paria social.
+
+- En mi vida he visto mayor fascista que el municipal que me preguntaba a ver si era de los que votan a vox, mientras cumple órdenes ilegales, y se regodea reteniéndome con la finalidad de intimidar y perjudicar.
+
+- Cuándo ya me habían molestado casi 10 veces, sin éxito (porque aparte de malos sois bobos), que yo ya ni salía de casa, más que por la noche, dos chavales me persiguieron una noche por un callejón sin luces, al grito de tú eres Ander y eres un facha. Posiblemente queriéndo matarme, a mí y a mi perro (nadie se acerca así a ese tipo de perro si no lo va a matar). Escapé y después sabían mis horarios y caminos de ida y vuelta a clase, mi calle y demás. Y sería gracioso si resultase que habían sido detenidos por los mismos policías municipales que me habían estado acosando sin poder cobrar multas. Que a parte de chivatos, fuesen recaderos. Sería gracioso consultar eso y que se diera esa circunstancia.
 
 - Con vosotros el derecho está torcido, y más vale que no tenga que enderezároslo yo.
 

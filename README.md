@@ -311,7 +311,7 @@ Tools:
 </tr>
 <tr><td colspan="2">
 
-- Si lo quieres en formato revisado, antes de pagar al revisor, paga al escritor.
+- Si lo quieres en formato revisado y reestructurado, antes de pagar al revisor, paga al escritor.
 
 - Apartaos, que va a pasar el elefante de los libros.
 

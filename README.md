@@ -88,6 +88,10 @@ Cómo vuelva a ver un payaso de dos metros y dos neuronas soñando con utilizar 
 Igual te crees que tengo los numeros de placa (de 2 en 2, de 4 en 4, y uno de 6), porque los colecciono.
 Y el que me preguntó lo de "tú no serás de los que vota a vox", está en más o menos la mitad.
 
+Dicho y hecho, con bueno habéis topado los buenos, con el mejor.
+
+Pongo el móvil a cargar, me tomo un café y lo pongo con pelos y señales.
+
 Por la culata y por el culete va a salir.
 
 </td></tr>

@@ -315,6 +315,8 @@ Tools:
 
 - Apartaos, que va a pasar el elefante de los libros.
 
+- Quiénes son los buenos? Los que tienen carnet del Partido.
+
 - Podría escribir un libro y titularlo, historia de un idealista secuestrado, torturado y coaccionado por gudaris en el Bilbao de 1984.
 
 - En mi vida he visto nada tan fascista cómo criarte en una zona de un país, en el que si dices que te gusta el país, eres un facha y un paria social.

@@ -86,6 +86,7 @@ Tengo aún experiencias en el tintero, que yo las mato callando.
 Cómo vuelva a ver un payaso de dos metros y dos neuronas soñando con utilizar al estado para joderme la vida más de lo que ya lo han hecho, directamente redacto aquí el delito penal (uso arbitrario de la ley, impedimento de realizar denuncia en beneficio de familiar/amigo) que está grabado en vuestras propias cámaras y con llamada previa al 112. Y no me refiero al de los otros ;)
 
 Igual te crees que tengo los numeros de placa (de 2 en 2, de 4 en 4, y uno de 6), porque los colecciono.
+Y el que me preguntó lo de "tú no serás de los que vota a vox", está en más o menos la mitad.
 
 Por la culata y por el culete va a salir.
 

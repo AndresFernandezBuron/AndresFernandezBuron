@@ -58,7 +58,10 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 <tr><td align="center" valign="middle" colspan="2">
 
-Éste ni mete goles, ni tiene salvoconducto cobiz.  Y que mala suerte, que lo grabasen.
+Errementariaren etxean, zurezko coilara.
+En casa del herrero, cuchillo de palo.
+
+Éste ni mete goles, ni tiene salvoconducto cobiz.  Y que mala suerte, que lo grabasen. Y que os grabasen.
 
 https://m.youtube.com/watch?v=0Tekeg83Daw&pp=ygUlZXJ0emFpbmEgc3NuIGZyYW5jaXNjbyBhYnVzbyBwb2xpY2lhbA%3D%3D
 
@@ -308,6 +311,16 @@ Tools:
 - Apartaos, que va a pasar el elefante de los libros.
 
 - Podría escribir un libro y titularlo, historia de un idealista secuestrado, torturado y coaccionado por gudaris en el Bilbao de 1984.
+
+- Con vosotros el derecho está torcido, y más vale que no tenga que enderezároslo yo.
+
+- Están de puta madre las kompetentziak para hacer y deshacer a vuestro antojo, sin respetar los principios más básicos y fundamentales del Derecho, pero los delitos de lesa humanidad ni preescriben, ni están en vuestra jurisdicción.
+
+- Mi abuelo si que hablaba euskera con Franco, y si el tuyo no lo hacía, sería por falta de huevos, o por estar prohibiéndole a los demás que lo hicieran. Que aquí todos muy luchadores de la libertad contra Tutankamon, pero al faraón vivo, a lamerle las pelotas, que los comecagas tenéis que comer.
+
+- Mi bisabuela si que pasó hambre y miseria con Franco, igual que yo contigo. Y tú estás a mamar del estado, igual que seguramente lo hacía tu bisabuela, y tú.
+
+- Verguenza me daría ser policía vasco e ir de antifascista, con el CI de una piedra y más propaganda que un buzón, preguntando a ver si voto a Franco, mientras aplicas leyes ilegales, siguiendo las órdenes ilegales de los putos políticos, a cambio de puto dinero.
   
 - Hablando con un chaval cuyo nombre contiene TZ, me dijo que él se había vacunado tres veces, cada vacuna, de una empresa/marca diferente. Le dije que yo ninguna. Y me dijo: Pero si no, no te dejaban entrar a los bares.
 

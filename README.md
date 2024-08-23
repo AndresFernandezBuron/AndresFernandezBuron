@@ -323,7 +323,7 @@ Tools:
 
 - Cuándo ya me habían molestado casi 10 veces, sin éxito (porque aparte de malos sois bobos), que yo ya ni salía de casa, más que por la noche, dos chavales me persiguieron una noche por un callejón sin luces, al grito de tú eres Ander y eres un facha. Posiblemente queriéndo matarme, a mí y a mi perro (nadie se acerca así a ese tipo de perro si no lo va a matar). Escapé y después sabían mis horarios y caminos de ida y vuelta a clase, mi calle y demás. Y sería gracioso si resultase que habían sido detenidos por los mismos policías municipales que me habían estado acosando sin poder cobrar multas. Que a parte de chivatos, fuesen recaderos. Sería gracioso consultar eso y que se diera esa circunstancia.
 
-- Con vosotros el derecho está torcido, y más vale que no tenga que enderezároslo yo.
+- Con vosotros el derecho está torcido, y mejor que os dediquéis a incinerar gente sin autopsias ni entierros, que a impedirme salir para siempre de vuestra puta jurisdicción de buenos (buenos, porque los que los jueces buenos os van a dar la razón).
 
 - Están de puta madre las kompetentziak para hacer y deshacer a vuestro antojo, sin respetar los principios más básicos y fundamentales del Derecho, pero los delitos de lesa humanidad ni preescriben, ni están en vuestra jurisdicción.
 

@@ -92,6 +92,8 @@ Dicho y hecho, con bueno habéis topado los buenos, con el mejor.
 
 Pongo el móvil a cargar, me tomo un café y lo pongo con pelos y señales.
 
+Que quieres que caiga yo que he andado más recto que el palo de la bandera, y yo quiero que caigais todos, hasta los que os sostienen.
+
 Por la culata y por el culete va a salir.
 
 </td></tr>

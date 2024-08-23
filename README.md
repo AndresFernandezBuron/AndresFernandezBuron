@@ -120,6 +120,8 @@ El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
 
 8° Castigo ejemplarizante para quién no sepa que mientras actúa cómo funcionario, debe dejar su retraso e hijoputismo en casa.
 
+9° Castigo ejemplarizante para quién use los medios estatales (por ejemplo, policiales) para realizar actividades parapoliciales.
+
 </td></tr>
 
 <tr><td colspan="2">

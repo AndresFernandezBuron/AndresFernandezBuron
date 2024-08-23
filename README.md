@@ -107,7 +107,7 @@ Ya dentro de la comisaría dejé de grabar. El de la recepción salió y le ante
 
 El chaval que es o amigo, o familiar, o directamente compañero, ahora vive cerca mío y yo no se la he devuelto porque los buenos de verdad tenemos las de perder con los "buenos" del ayuntamiento.
 
-Un día, estándo yo en Amezola, apareció la perra del chaval, pero la paseaban los padres del chaval, miraron mal a mi perra y a mí, y me dijeron: Muerde? Y les dije: No, la que muerde es la vuestra que ya ha mordido a la mía, y vuestro hijo me agredió por pedirle educadamente que corriera con los gastos veterinarios.
+Un día, estándo yo en Amezola, apareció la perra del chaval, pero la paseaban los padres del chaval, miraron mal a mi perra y a mí, y me dijeron: Muerde? Y les dije: No, la que muerde es la vuestra que ya ha mordido a la mía, y vuestro hijo me agredió por pedirle educadamente que corriera con los gastos veterinarios. Y se fueron avergonzados.
 
 La fecha la puedo obtener, mirando la factura del veterinario que tuve que pagar de mi bolsillo gracias al uso arbitrario que hacéis de vuestras buenas instituzioak.
 

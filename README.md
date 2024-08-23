@@ -85,6 +85,8 @@ El terrorismo cómo control social - https://m.youtube.com/results?sp=mAEA&searc
 Tengo aún experiencias en el tintero, que yo las mato callando.
 Cómo vuelva a ver un payaso de dos metros y dos neuronas soñando con utilizar al estado para joderme la vida más de lo que ya lo han hecho, directamente redacto aquí el delito penal (uso arbitrario de la ley, impedimento de realizar denuncia en beneficio de familiar/amigo) que está grabado en vuestras propias cámaras. Y no me refiero al de los otros ;)
 
+Igual te crees que tengo los numeros de placa (de 2 en 2, de 4 en 4, y uno de 6), porque los colecciono.
+
 Por la culata y por el culete va a salir.
 
 </td></tr>

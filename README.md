@@ -94,7 +94,17 @@ Pongo el móvil a cargar, me tomo un café y lo pongo con pelos y señales.
 
 Que quieres que caiga yo que he andado más recto que el palo de la bandera, y yo quiero que caigais todos, hasta los que os sostienen.
 
-Por la culata y por el culete va a salir.
+Empiezo:
+
+A mi desde niño se me ha educado en el cumplimiento de la ley, el ser buena persona y en ser educado. Que vaya ostión cuándo descubrí que eso se enseñaba en mi casa y poco más, pero eso ya es otro asunto.
+
+Un día estaba yo paseando a mi perra (la primera que tuve) en el parque de Amezola.
+Vino un chico, que la verdad, pues si que mediría unos dos metros también...
+El chico tenía una perra Bulldog inglés.
+Su perra mordió a la mía. Y yo, educadamente y conocedor de la ley, le dije que le correspondía correr con los gastos veterinarios, y que yo, tonto de mí, así no enunviaría a su perra. El chaval se negó y se fué del parque. Yo fui tras de él con la perra cojeando y sangrando. Yo quería saber dónde iba pues si no asumía sus responsabilidades de mutuo acuerdo, debía hacerlo por otros cauces legales más formales. Yo iba detrás de él y llamé al 112 pues es el único número de ese estilo que conozco y el que uso. Durante la conversación con el 112, el chaval se giró, vino hacia mí y me golpeó en la cara y me tiró al suelo. Si las grabaciones del 112 no se borran, pues ahí está grabado. Después de eso seguí siguiéndolo mientras le grababa con el móvil. Pero el chaval, no se dirigía a su casa y se me hizo raro, cómo despúes de que su perra atacara a la mía, yo le propusiese educadamente una solución justa y benévola para él y el me agrediese a mi, entrase en la comisaría de Zabalburu cómo Pedro por su casa y saludando al de la recepción cómo quién saluda a alguien cercano.
+
+Ahora continúa, que me llama mi madre ;)
+
 
 </td></tr>
 

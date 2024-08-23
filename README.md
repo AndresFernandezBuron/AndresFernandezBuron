@@ -116,6 +116,10 @@ El estado cómo defensa del individuo, y no cómo parapeto de déspotas.
 
 6° Castigo ejemplarizante para quién manipule los procesos democráticos.
 
+7° Castigo ejemplarizante para quién utilice los medios estatales para destruir la vida de individuos.
+
+8° Castigo ejemplarizante para quién no sepa que mientras actúa cómo funcionario, debe dejar su retraso e hijoputismo en casa.
+
 </td></tr>
 
 <tr><td colspan="2">

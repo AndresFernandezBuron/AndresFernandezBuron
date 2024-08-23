@@ -320,7 +320,7 @@ Tools:
 
 - Quiénes son los buenos? Los que tienen carnet del Partido.
 
-- Podría escribir un libro y titularlo, historia de un idealista con estrés postraumático, secuestrado, torturado, extorsionado, coaccionado y acosado por gudaris en el Bilbao de 1984.  Con el diez veces más páginas que el que me leí del gudari, y sin que los buenos aparezcan solo haciéndo el prólogo, si no mencionándolos en cada página.
+- Podría escribir un libro y titularlo, historia de un idealista con estrés postraumático, secuestrado, torturado, extorsionado, coaccionado y acosado por gudaris en el Bilbao de 1984.  Con diez veces más páginas que el que me leí del gudari, y sin que los buenos aparezcan solo haciéndo el prólogo, si no mencionándolos en cada página.
 
 - En mi vida he visto nada tan fascista cómo criarte en una zona de un país, en el que si dices que te gusta el país, eres un facha y un paria social.
 

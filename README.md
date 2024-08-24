@@ -701,8 +701,6 @@ VKR - Alta fidelidad - https://m.youtube.com/watch?v=_SZw-YJNpPE
 
 VKR - Fines lucrativos - https://m.youtube.com/watch?v=1sl0rtQq8Nc
 
-CPV - Oye - https://m.youtube.com/watch?v=fk4UUVjbEq0
-
 CPV - De cacería - https://m.youtube.com/watch?v=xnxpwELcKaI
 
 VKR - En el este - https://m.youtube.com/watch?v=9ypsxKkfdkU&pp=ygUOdmtyIGVuIGVsIGVzdGU%3D

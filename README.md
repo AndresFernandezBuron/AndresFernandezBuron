@@ -130,6 +130,8 @@ Yo no soy de los vuestros, no quiero teneros cerca, no voy a trabajar para vosot
 
 Y el día que yo hable, no vas a tener dedos en las manos para contar cuántos vais a caer.
 
+Así que apunta bien tu nombre que yo os voy a pedir responsabilidades a todos, y no solo de forma individual.
+
 </td></tr>
 
 <tr><td align="center" valign="middle" colspan="2">

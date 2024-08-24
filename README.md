@@ -113,6 +113,23 @@ La fecha la puedo obtener, mirando la factura del veterinario que tuve que pagar
 
 Moraleja, educa y ata en corto a los buenos de tus perros, que los jueces os darán la razón porque son tan buenos cómo vosotros.
 
+-----------
+
+Y al final, voy a acabar poniéndo todo aquí, porque yo llevo desde el secuestro, sin hacer uso de ningún servicio público incluso habiéndolo necesitado.
+
+Que cuándo les pedía las placas a los policías que me decían que para que las quería, yo les decía para cuándo haya Justicia, para cuándo se aplique la Ley.
+
+Y no, no es en vuestras instituciones dónde voy a pedirlo, que por algo no recurro a vosotros ni en la peor circunstancia.
+
+Que yo soy programador, y durante el secuestro estaba estudiando de forma autodidacta, y cuándo me saqué el título con un 8.93 fue para demostrarme a mí mismo que no me habíais dejado retrasado durante el secuestro, con las drogas que me administrabais de forma obligada y sin informarme de que eran. Y todo lo que he estudiado es para poder tener un modo de vida con el que poder huir de vuestra jurisdicción.
+
+Y siendo tan bueno en programación, apenas le he podido sacar un duro, porque me han rechazado en mil empresas.
+Empresas que están llenas de subenciones, becarios no remunerados y gente que no dabe hacer la o con un canuto.
+
+Yo no soy de los vuestros, no quiero teneros cerca, no voy a trabajar para vosotros, y mucho menos voy a dejar que me hagais daño bajo ningún pretexto.
+
+Y el día que yo hable, no vas a tener dedos en las manos para contar cuántos vais a caer.
+
 </td></tr>
 
 <tr><td align="center" valign="middle" colspan="2">

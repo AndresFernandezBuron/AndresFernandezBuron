@@ -141,7 +141,7 @@ Salí destrozado física, psicológica y anímicamente. No he vuelto a ser la mi
 
 Todos los días la misma conversación. Contestar a sus preguntas, preguntar las justificaciones legales y ser extorsionado para que les firmase el papel que les permitía abrirme la cabeza. Excepto al final, que ya solo me permitían tener esa conversación cada dos días.
 
-Antes de ser secuestrado era creyente, y salí siendo ateo. Ahora miro mucho los pájaros, porque durante el secuestro le pedía a Dios que si estaba ahí, cómo señal, hiciese que los pájaros se e acercasen.
+Antes de ser secuestrado era creyente, y salí siendo ateo. Ahora miro mucho los pájaros, porque durante el secuestro le pedía a Dios que si estaba ahí, cómo señal, hiciese que los pájaros se me acercasen a través del cristal de la ventana.
 
 También tengo un tatuaje de un perro sentado, que me lo hice después del secuestro. Porque durante el secuestro no podía ver a mis perros que son parte de mi familia. Me lo hice a la vez que sacaba 10 en todos los exámenes para demostrarme a mi mismo que no habían conseguido dejarme subnormal.
 

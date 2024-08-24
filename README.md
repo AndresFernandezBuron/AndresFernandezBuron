@@ -357,7 +357,7 @@ Tools:
 </tr>
 <tr><td colspan="2">
 
-- Si lo quieres en formato revisado y reestructurado, antes de pagar al revisor, paga al escritor.
+- Si lo quieres en formato revisado y bien estructurado, antes de pagar al revisor, paga al escritor.
 
 - Apartaos, que va a pasar el elefante de los libros.
 
@@ -680,6 +680,8 @@ And 100,000 to believe it.
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
 Capaz - A la mierda todos - https://m.youtube.com/watch?v=J-wkTdjcvXg
+
+Capaz - Lemmingz - https://m.youtube.com/watch?v=f4I0DDD4pmM
 
 Los jondo - Misión imposible - https://m.youtube.com/watch?v=QSQublzF6KY
 

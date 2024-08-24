@@ -693,13 +693,13 @@ Los jondo - Misión imposible - https://m.youtube.com/watch?v=QSQublzF6KY
 
 Los jondo - Vida rap - https://m.youtube.com/watch?v=pMPRKg8bFAE&pp=ygUabG9zIGpvbmRvIG5vIHRlbmVpIG5pIHB1dGE%3D
 
-VKR - Alta fidelidad - https://m.youtube.com/watch?v=_SZw-YJNpPE
-
-VKR - Fines lucrativos - https://m.youtube.com/watch?v=1sl0rtQq8Nc
-
 CPV - Cuenta - https://m.youtube.com/watch?v=TNNJNkMlqlg
 
 CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
+
+VKR - Alta fidelidad - https://m.youtube.com/watch?v=_SZw-YJNpPE
+
+VKR - Fines lucrativos - https://m.youtube.com/watch?v=1sl0rtQq8Nc
 
 CPV - Oye - https://m.youtube.com/watch?v=fk4UUVjbEq0
 

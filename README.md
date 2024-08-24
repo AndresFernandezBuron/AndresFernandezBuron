@@ -697,6 +697,8 @@ CPV - Cuenta - https://m.youtube.com/watch?v=TNNJNkMlqlg
 
 CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
 
+CPV - De cacería - https://m.youtube.com/watch?v=xnxpwELcKaI
+
 VKR - En el este - https://m.youtube.com/watch?v=9ypsxKkfdkU&pp=ygUOdmtyIGVuIGVsIGVzdGU%3D
 
 VKR - Contra elementos - https://m.youtube.com/watch?v=V5ktuq2sFtc

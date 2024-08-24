@@ -136,6 +136,10 @@ Que cada vez que preguntaba que leyes sostenían mi retención ilegal y que me a
 
 Estuve secuestrado unos 21 días, los cuales yo no contabilizé porque estaba drogadísimo. Desde que empecé a hablar de abogados, tardé unos 3 ó 4 días en ser liberado. Y salí destrozado física, psicológica y anímicamente. No he vuelto a ser la misma persona y no he vuelto a fiarme de ningún trabajador público. No voy, ni a pedir las recetas de la medicina para el asma.
 
+Todos los días la misma conversación. Contestar a sus preguntas, preguntar las justificaciones legales y ser extorsionado para que les firmase el papel que les permitía abrirme la cabeza. Excepto al final, que ya solo me permitían tener esa conversación cada dos días.
+
+Y me estoy callando el 99%, porque al menos de momento, con contar esto, me basta.
+
 </td></tr>
 
 <tr><td align="center" valign="middle" colspan="2">

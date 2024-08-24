@@ -587,8 +587,6 @@ Los medios estatales son nuestros y lo que hagamos da igual, aquí lo que import
 
 - What I hate about the truth, is that often people love lies.
 
-- I no longer trust in the creator, cause perfection wouldn't have created stupidity and stupid evil.
-
 - The only people I admire and would follow are Jesus and Viriato.
 
 - SEO has killed access to quality information.
@@ -679,6 +677,8 @@ And 100,000 to believe it.
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
+CPV - Demasiado - https://m.youtube.com/watch?v=nfRQGsY3sXg
+
 Capaz - A la mierda todos - https://m.youtube.com/watch?v=J-wkTdjcvXg
 
 Capaz - Lemmingz - https://m.youtube.com/watch?v=f4I0DDD4pmM
@@ -693,15 +693,15 @@ VKR - Fines lucrativos - https://m.youtube.com/watch?v=1sl0rtQq8Nc
 
 VKR - En el este - https://m.youtube.com/watch?v=9ypsxKkfdkU&pp=ygUOdmtyIGVuIGVsIGVzdGU%3D
 
+CPV - Cuenta - https://m.youtube.com/watch?v=TNNJNkMlqlg
+
+CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
+
 VKR - Contra elementos - https://m.youtube.com/watch?v=V5ktuq2sFtc
 
 Masstone - Se abre el telón - https://m.youtube.com/watch?v=62wXzaEcR8A&pp=ygUIbWFzc3RvbmU%3D
 
 Masstone - Ni más ni menos - https://m.youtube.com/watch?v=-80AqmfKGZ0&pp=ygUIbWFzc3RvbmU%3D
-
-CPV - Cuenta - https://m.youtube.com/watch?v=TNNJNkMlqlg
-
-CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
 
 Frankt ft Zénit - La verdad - https://m.youtube.com/watch?v=eZvomUiPD1U
 

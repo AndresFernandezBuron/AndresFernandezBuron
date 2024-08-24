@@ -132,6 +132,7 @@ Y el día que yo hable, no vas a tener dedos en las manos para contar cuántos v
 
 Así que apunta bien tu nombre que yo os voy a pedir responsabilidades a todos, y no solo de forma individual, si no cómo organización criminal.
 
+Que cada vez que preguntaba que leyes sostenían mi retención ilegal y que me afministrasen drogas que me hicieron ver colorines y que me dejaron 2 años retrasado y 3 o 4 impotente, no me respondían. Pero me decían que si les firmaba un papel para dejarles abrirme la cabeza "para arreglar un problema auditivo" (sordera), me dejarían irme. Y acabé consiguiéndo mi libertad cuándo empecé a amenazar con que le iban a tener que dar explicación a mi abogado, al cuál iba a pagar con mil euros que me iba a prestar una persona.
 
 </td></tr>
 

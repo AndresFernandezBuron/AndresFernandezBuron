@@ -58,8 +58,9 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 <tr><td align="center" valign="middle" colspan="2">
 
-Errementariaren etxean, zurezko coilara.
 En casa del herrero, cuchillo de palo.
+
+Errementariaren etxean, zurezko koilara.
 
 Éste ni mete goles, ni tiene salvoconducto cobiz.  Y que mala suerte, que lo grabasen. Y que os grabasen.
 

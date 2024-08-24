@@ -677,6 +677,8 @@ And 100,000 to believe it.
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
+CPV - Líneas torcidas - https://m.youtube.com/watch?v=kC-TRoyg1Dc
+
 CPV - Demasiado - https://m.youtube.com/watch?v=nfRQGsY3sXg
 
 Capaz - A la mierda todos - https://m.youtube.com/watch?v=J-wkTdjcvXg
@@ -691,11 +693,11 @@ VKR - Alta fidelidad - https://m.youtube.com/watch?v=_SZw-YJNpPE
 
 VKR - Fines lucrativos - https://m.youtube.com/watch?v=1sl0rtQq8Nc
 
-VKR - En el este - https://m.youtube.com/watch?v=9ypsxKkfdkU&pp=ygUOdmtyIGVuIGVsIGVzdGU%3D
-
 CPV - Cuenta - https://m.youtube.com/watch?v=TNNJNkMlqlg
 
 CPV - Grandes planes - https://m.youtube.com/watch?v=7UEiO1ejH2w
+
+VKR - En el este - https://m.youtube.com/watch?v=9ypsxKkfdkU&pp=ygUOdmtyIGVuIGVsIGVzdGU%3D
 
 VKR - Contra elementos - https://m.youtube.com/watch?v=V5ktuq2sFtc
 

@@ -81,6 +81,8 @@ El ARN negativo - https://www.google.com/search?client=firefox-b-m&sca_esv=19b55
 
 El fotógrafo más famoso - https://www.google.com/search?q=kote+kabezudo&ie=utf-8&oe=utf-8&client=firefox-b-m
 
+El pnveleta - https://www.europapress.es/epsocial/noticia-pnv-propone-simple-visionado-pornografia-infantil-sea-delito-elevar-edad-consentimiento-sexual-20081020180237.html
+
 De aquí, mejor leer lo que no han publicado ellos recientemente - 
 https://www.google.com/search?client=firefox-b-m&sca_esv=19b551ade1306bfb&q=pnv+visita+alemania+nazi&oq=pnv+visita+alemania+nazi&aqs=heirloom-srp..
 

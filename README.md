@@ -703,6 +703,10 @@ And 100,000 to believe it.
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
+Cherokee y Subcero - Tribulación - https://m.youtube.com/watch?v=Fm72103M_hU&pp=ygURY2FtcGUgdHJpYnVsYWNpb24%3D
+
+Gordo master - Judas - https://m.youtube.com/watch?v=OA4CJ_CYqzo&pp=ygUSZ29yZG8gbWFzdGVyIGp1ZGFz
+
 The louk - Vendetta - https://m.youtube.com/watch?v=9G52aqbqMkE&pp=ygURdGhlIGxvdWsgdmVuZGV0dGE%3D
 
 VKR - Mandrágora - https://m.youtube.com/watch?v=Y1yvvr5tZF0&pp=ygUOdmtyIG1hbmRyYWdvcmE%3D

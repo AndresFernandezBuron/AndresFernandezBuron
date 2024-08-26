@@ -63,6 +63,8 @@ En casa del herrero, cuchillo de palo.
 
 Errementariaren etxean, zurezko koilara.
 
+Pero que decir, si en todos lados cuecen habas.
+
 Éste ni mete goles, ni tiene salvoconducto cobiz.  Y que mala suerte, que lo grabasen. Y que os grabasen.
 
 https://m.youtube.com/watch?v=0Tekeg83Daw&pp=ygUlZXJ0emFpbmEgc3NuIGZyYW5jaXNjbyBhYnVzbyBwb2xpY2lhbA%3D%3D

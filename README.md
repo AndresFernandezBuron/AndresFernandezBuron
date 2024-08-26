@@ -1,4 +1,5 @@
 <h1>Refugio mío.  Alcázar mío.  Señor mío.  En tí confío.</h1>
+<h2>Todos los que vayais en mi contra, bien vacunados estáis</h2>
 <table width="100%" border="0" cellpadding="0" cellspacing="0"><tbody>
 <tr><td colspan="2"><strong><pre>
     _              _ 
@@ -402,6 +403,7 @@ Tools:
 - Y tienen carreras seguro, carrera en tener plaza fija, carrera en llenar su cuenta con la del ayuntamiento, carrera en hipocresía, carrera en cumplir órdenes ilegales y carrera en saber que los jueces les van a dar la razón. Y en saber que ellos no son fascistas porque están en contra de Franco y de vox.
   
 - Cuándo ya me habían molestado casi 10 veces, sin éxito (porque aparte de malos sois bobos), que yo ya ni salía de casa, más que por la noche, dos chavales me persiguieron una noche por un callejón sin luces, al grito de tú eres Ander y eres un facha. Posiblemente queriéndo matarme, a mí y a mi perro (nadie se acerca así a ese tipo de perro si no lo va a matar). Escapé y después sabían mis horarios y caminos de ida y vuelta a clase, mi calle y demás. Y sería gracioso si resultase que habían sido detenidos por los mismos policías municipales que me habían estado acosando sin poder cobrar multas. Que a parte de chivatos, fuesen recaderos. Sería gracioso consultar eso y que se diera esa circunstancia.
+Porque sé dónde viven y puede que al menos una parte esté grabado en cámaras, pues se dieron por vencidos cuándo llegué a la luz y dónde había una familia.
 
 - Con vosotros el derecho está torcido, y mejor que os dediquéis a incinerar gente sin autopsias ni entierros, que a impedirme salir para siempre de vuestra puta jurisdicción de buenos (buenos, porque los que los jueces buenos os van a dar la razón).
 

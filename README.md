@@ -181,7 +181,7 @@ Búsqueda en google: Psiquiatria represiva
 
 https://www.google.com/search?q=psiquiatria+represiva&ie=utf-8&oe=utf-8&client=firefox-b-m 
 
-Búsqueda en google: Psiquiatria drapetomía
+Búsqueda en google: Psiquiatria drapetomanía
 
 https://www.google.com/search?client=firefox-b-m&sca_esv=b5ffd59036b7c443&sca_upv=1&q=psiquiatr%C3%ADa+drapetoman%C3%ADa&oq=psiquiatr%C3%ADa+drapetoman%C3%ADa&aqs=heirloom-srp..
 

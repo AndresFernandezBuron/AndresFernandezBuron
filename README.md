@@ -179,6 +179,7 @@ https://www.google.com/search?q=psiquiatria+represiva&ie=utf-8&oe=utf-8&client=f
 Búsqueda en google: Psiquiatria represiva 
 
 Ejemplos históricos documentados:
+- Drapetomanía 
 - Psiquiatría represiva URSS
 - Psiquiatría represiva franquismo
 

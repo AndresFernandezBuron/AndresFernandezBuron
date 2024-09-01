@@ -162,7 +162,7 @@ Líbrate muy mucho de que me sienta en peligro, que de los fachas no sé nada, p
 
 tr><td align="center" valign="middle" colspan="2">
 
-**Los buenos benenevoléntes y solidarios matasanos :**
+**Los buenos benenevolentes y solidarios matasanos :**
 </tr>
 <tr><td colspan="2">
 

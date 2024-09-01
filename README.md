@@ -172,16 +172,14 @@ La psiquiatría cómo tapadera de opresión institucional.
 
 La psiquiatría cómo arma contra el individuo.
 
-Búsqueda en google: Psiquiatria represiva
-
-https://www.google.com/search?q=psiquiatria+represiva&ie=utf-8&oe=utf-8&client=firefox-b-m
-
-Búsqueda en google: Psiquiatria represiva 
-
-Ejemplos históricos documentados:
+Ejemplos históricos documentados (orden cronológico):
 - Drapetomanía 
 - Psiquiatría represiva URSS
 - Psiquiatría represiva franquismo
+
+Búsqueda en google: Psiquiatria represiva
+
+https://www.google.com/search?q=psiquiatria+represiva&ie=utf-8&oe=utf-8&client=firefox-b-m 
 
 Búsqueda en google: Psiquiatria drapetomía
 

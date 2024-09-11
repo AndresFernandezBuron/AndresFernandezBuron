@@ -776,6 +776,8 @@ Chinatown - La fábrica rica - https://m.youtube.com/watch?v=lKvj8X_gAGQ&pp=ygUZ
 
 Nach Scratch - El demonio camuflado en el asfalto - https://m.youtube.com/watch?v=kx1qMhuDi_U&pp=ygUnbmFjaCBlbCBkZW1vbmlvIGNhbXVmbGFkbyBlbiBlbCBhc2ZhbHRv
 
+Frank T - Los pájaros no pueden vivir en el agua porque no son peces - https://m.youtube.com/watch?v=z6DZwFuQFsc&pp=ygU0ZnJhbmsgdCBsb3MgcGFqYXJvcyBubyBwdWVkZW4gdml2aXIgZW4gZWwgYWd1YSBsZXRyYQ%3D%3D
+
 Cherokee y Subcero - Tribulación - https://m.youtube.com/watch?v=Fm72103M_hU&pp=ygURY2FtcGUgdHJpYnVsYWNpb24%3D
 
 Gordo master - Judas - https://m.youtube.com/watch?v=OA4CJ_CYqzo&pp=ygUSZ29yZG8gbWFzdGVyIGp1ZGFz

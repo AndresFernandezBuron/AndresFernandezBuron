@@ -148,7 +148,13 @@ La fecha la puedo obtener, mirando la factura del veterinario que tuve que pagar
 
 Moraleja, educa y ata en corto a los buenos de tus perros, que los jueces os darán la razón porque son tan buenos cómo vosotros.
 
------------
+</tr>
+
+<tr><td align="center" valign="middle" colspan="2">
+
+**Mi secuestro:**
+</tr>
+<tr><td colspan="2">
 
 Y al final, voy a acabar poniéndo todo aquí, porque yo llevo desde el secuestro, sin hacer uso de ningún servicio público incluso habiéndolo necesitado.
 

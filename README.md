@@ -784,6 +784,8 @@ Mitiko - Me adormece - https://m.youtube.com/watch?v=S-MCmasVxUA&pp=ygUTbWl0aWtv
 
 Ganda - Peones en el juego & Supervivientes HH & no hay futuro - https://m.youtube.com/watch?v=ZKG8Y5APSdQ&pp=ygUYZ2FuZGEgcGVvbmVzIGVuIGVsIGp1ZWdv
 
+Ganda - Glamour & Peones en el juego & Me lo copian todo - https://m.youtube.com/watch?v=d1x2iiwWQpY&pp=ygUYZ2FuZGEgcGVvbmVzIGVuIGVsIGp1ZWdv
+
 Ganda - Peones en el juego - https://m.youtube.com/watch?v=ZLrzOVDBBcg&pp=ygUYZ2FuZGEgcGVvbmVzIGVuIGVsIGp1ZWdv
 
 Ganda - No hay futuro - https://m.youtube.com/watch?v=2zv6ReS_JbY&pp=ygUQZ2FuZGEgZ25kIG5vIGhheQ%3D%3D

@@ -51,7 +51,7 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
     
 </td></tr>
 
-<tr><td align="center" valign="middle" colspan="2">
+<tr><td valign="middle" colspan="2">
 
 Cómo soy una persona curiosa, siempre me ha gustado saber y pensar.
 

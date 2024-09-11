@@ -775,6 +775,10 @@ DJ Uve y Priteo - Se desliza - https://m.youtube.com/watch?v=bhMyeDMkzqI&pp=ygUR
 
 Mitiko - Me adormecen - https://m.youtube.com/watch?v=S-MCmasVxUA&pp=ygUTbWl0aWtvIG1lIGFkb3JtZWNlbg%3D%3D
 
+Mitiko y Vampy - Free estudios blancos 2017 - https://m.youtube.com/watch?v=DLHU0CB6_ow&pp=ygUhbWl0aWtvIGZyZWUgZXN0dWRpb3MgYmxhbmNvcyAyMDE3
+
+Mitiko - Elegantes - https://m.youtube.com/watch?v=hVJ1g_yaKJs&pp=ygUQbWl0aWtvIGVsZWdhbnRlcw%3D%3D
+
 El estado es tu fabrica rica.
 Chinatown - La fábrica rica - https://m.youtube.com/watch?v=lKvj8X_gAGQ&pp=ygUZY2hpbmF0b3duIGxhIGZhYnJpY2EgcmljYQ%3D%3D
 

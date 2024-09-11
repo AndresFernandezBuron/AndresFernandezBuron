@@ -53,6 +53,33 @@ I'm looking for a remote job in Spanish, because I need money I want to stay awa
 
 <tr><td align="center" valign="middle" colspan="2">
 
+Cómo soy una persona curiosa, siempre me ha gustado saber y pensar.
+
+Y me ha dado tiempo a saber un poco.
+
+Cuándo pueda desarrollaré los siguientes textos, entre otros.
+
+-----------  
+Sobre el amasamiento en el sistema educativo
+
+-----------  
+Sobre la manipulación social
+
+-----------  
+Sobre la alienación intergeneracional
+
+-----------
+Sobre el individuo dentro de la masa,  encima y fuera
+
+-----------  
+Sobre el pensamiento único y la propaganda
+
+
+ 
+</td></tr>
+
+<tr><td align="center" valign="middle" colspan="2">
+
 **Los buenos:**
 </tr>
 <tr><td colspan="2">

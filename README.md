@@ -1,6 +1,8 @@
 <h1>Refugio mío.  Alcázar mío.  Señor mío.  En tí confío.</h1>
 <h2>Todos los que vayais en mi contra, bien vacunados estáis, que a mi para inyectarme cosas, tuvieron que secuestrarme</h2>
-<table width="100%" border="0" cellpadding="0" cellspacing="0"><tbody>
+
+<table width="100%" border="0" cellpadding="0" cellspacing="0">
+<tbody>
 <tr><td colspan="2"><strong><pre>
     _              _ 
    / \   _ __   __| |_ __ ___  ___ 
@@ -28,7 +30,7 @@ un desarrollador de España.
 
 <br>
 
-Las políticas totalitarias e ilegales covid han traído muchos cambios a mi vida.
+Las políticas totalitarias, ilegales e impunes del covid han traído muchos cambios a mi vida.
     
 Estoy buscando trabajo en remoto en español, porque requiero dinero y estar lejos de cualquier institución de estado.
 

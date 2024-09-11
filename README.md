@@ -102,6 +102,9 @@ Encontrar detenidos dentro de su propia jurisdicción, es cómo encontrar una ag
 
 https://www.google.com/search?q=ertzainas+traficantes+detenidos+fuera+del+pais+vasco&ie=utf-8&oe=utf-8&client=firefox-b-m
 
+Vaya casa de putas que es la justicia.  
+https://www.elmundo.es/pais-vasco/2015/11/16/56498a05e2704ecc548b459f.html
+
 Las buenas oposiciones - https://www.google.com/search?q=oposiciones+vascas+amañadas&ie=utf-8&oe=utf-8
 
 Las """vacunas""" más probadas - https://www.elcorreo.com/sociedad/salud/covid-ninos-esla-20211211175538-nt.html

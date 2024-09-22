@@ -809,6 +809,10 @@ And 100,000 to believe it.
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
+Dela ghetto - Acercate - https://m.youtube.com/watch?v=ti-pC0zZEMs&pp=ygUTZGVsYWdoZXR0byBhY2VyY2F0ZQ%3D%3D
+
+Tego Calderón - https://m.youtube.com/watch?v=bpGWOm013v0&pp=ygUXdGVnbyBjYWxkZXJvbiBlbCBzaXRpbyA%3D
+
 Ganda - Portugal (directo) - https://m.youtube.com/watch?v=qMlKgYqyBkM
 
 Ganda - Portugal - https://m.youtube.com/watch?v=XT1ZGXCaR6M&pp=ygUOZ2FuZGEgcG9ydHVnYWw%3D

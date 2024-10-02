@@ -2,31 +2,33 @@
 Alcázar mío.  
 Señor mío.  
 En tí confío.</h1>
-<h2>Jehová es mi pastor; nada me faltará.
+<h2>Jehová es mi pastor; nada me faltará.  
 
-En lugares de delicados pastos me hará descansar;
+En lugares de delicados pastos me hará descansar;  
 
-Junto a aguas de reposo me pastoreará.
+Junto a aguas de reposo me pastoreará.  
 
-Confortará mi alma;
+Confortará mi alma;  
 
-Me guiará por sendas de justicia por amor de su nombre.
+Me guiará por sendas de justicia por amor de su nombre.  
 
-Aunque ande en valle de sombra de muerte,
+Aunque ande en valle de sombra de muerte,  
 
-No temeré mal alguno, porque tú estarás conmigo;
+NO TEMERÉ MAL ALGUNO, PORQUE TÚ ESTARÁS CONMIGO;  
 
-Tu vara y tu cayado me infundirán aliento.
+Tu vara y tu cayado me infundirán aliento.  
  
-Aderezas mesa delante de mí en presencia de mis angustiadores;
+Aderezas mesa delante de mí en presencia de mis angustiadores;  
 
-Unges mi cabeza con aceite; mi copa está rebosando.
+Unges mi cabeza con aceite; mi copa está rebosando.  
 
-Ciertamente el bien y la misericordia me seguirán todos los días de mi vida,
+Ciertamente el bien y la misericordia me seguirán todos los días de mi vida,  
 
 Y en la casa de Jehová moraré por largos días.
 </h2>
-<h3>Todos los que vayais en mi contra, bien vacunados estáis, que a mi para inyectarme cosas, tuvieron que secuestrarme</h3>
+
+<h3>Tú eres Franco, tú eres los grises, tú eres el bully, tú eres el abusador, tú eres la gestapo, tú eres Pilatos, tú eres Judas. Tú, eres masa.</h3>
+<h4>Todos los que vayais en mi contra, bien vacunados estáis, que a mi para inyectarme cosas, tuvieron que secuestrarme</h4>
 
 
 
@@ -808,6 +810,8 @@ And 100,000 to believe it.
 <tr><td colspan="2">
 
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
+
+SKA-P - A chitón - https://m.youtube.com/watch?v=933DkE1Mx0c&pp=ygUPc2thLXAgYSBjaGl0w7Nu
 
 SKA-P - Romero el madero - https://m.youtube.com/watch?v=QBE5x75fiGI&pp=ygUQcm9tZXJvIGVsIG1hZGVybw%3D%3D
 

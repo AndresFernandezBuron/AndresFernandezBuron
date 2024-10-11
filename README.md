@@ -839,6 +839,8 @@ Samantha - Eviva España - https://m.youtube.com/watch?v=mLWSnAZh32o&pp=ygUWc2Ft
 
 Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&pp=ygUhbWFub2xvIGVzY29iYXIgeSBxdWUgdml2YSBlc3Bhw7Fh
 
+Ska-P - Kemalo - https://m.youtube.com/watch?v=HzOD5UyEH5Y&pp=ygUMc2thIHAga2VtYWxv
+
 Poeta callejero - El poder del dinero - 
 
 La frase censurada es: Si tu mente es débil, el dinero lava tu conciencia.

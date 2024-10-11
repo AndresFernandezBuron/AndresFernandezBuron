@@ -838,6 +838,8 @@ La frase censurada es: Si tu mente es débil, el dinero lava tu conciencia.
 
 https://m.youtube.com/watch?v=Cvz1yGHowVE&pp=ygUjcG9ldGEgY2FsbGVqZXJvIGVsIHBvZGVyIGRlbCBkaW5lcm8%3D
 
+Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&pp=ygUhbWFub2xvIGVzY29iYXIgeSBxdWUgdml2YSBlc3Bhw7Fh
+
 Poeta callejero - Que pasa - https://m.youtube.com/watch?v=UoyyLDMlliU&pp=ygUYcG9ldGEgY2FsbGVqZXJvIHF1ZSBwYXNh
 
 Chinatown - Carroña - https://m.youtube.com/watch?v=VfCIqLIWH64&pp=ygUSY2hpbmF0b3duIGNhcnJvw7Fh

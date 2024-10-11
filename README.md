@@ -831,7 +831,9 @@ And 100,000 to believe it.
 Las mejores obras de Mozart - https://www.youtube.com/watch?v=Rb0UmrCXxVA
 
 Poeta callejero - El poder del dinero - 
+
 La frase censurada es: Si tu mente es débil, el dinero lava tu conciencia.
+
 
 https://m.youtube.com/watch?v=Cvz1yGHowVE&pp=ygUjcG9ldGEgY2FsbGVqZXJvIGVsIHBvZGVyIGRlbCBkaW5lcm8%3D
 

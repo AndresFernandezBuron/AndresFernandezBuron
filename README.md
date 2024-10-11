@@ -151,7 +151,8 @@ https://www.google.com/search?q=ertzainas+traficantes+detenidos+fuera+del+pais+v
 
 Vaya casa de putas que es la justicia. 
 
-Primera consumición gratis, para que se acostumbren a consumir al ciudadano.
+Primera consumición gratis, para que se acostumbren a CONSUMIR AL CIUDADANO.
+
 
 https://www.elmundo.es/pais-vasco/2015/11/16/56498a05e2704ecc548b459f.html
 

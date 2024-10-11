@@ -40,8 +40,8 @@ Franco eres tú.   <br>
  
 Qué es fascismo?   <br>
 Me preguntas mientras.   <br>
-instrumentalizas al ciudadano, <br>
-con propaganda,  <br>
+instrumentalizas <br>
+al ciudadano, con propaganda,  <br>
 roja o azul.  <br>
 Qué es fascismo,    <br>
 fascismo eres tú.  
@@ -148,7 +148,10 @@ Encontrar detenidos dentro de su propia jurisdicción, es cómo encontrar una ag
 
 https://www.google.com/search?q=ertzainas+traficantes+detenidos+fuera+del+pais+vasco&ie=utf-8&oe=utf-8&client=firefox-b-m
 
-Vaya casa de putas que es la justicia.  
+Vaya casa de putas que es la justicia. 
+
+Primera consumición gratis, para que se acostumbren a consumir al ciudadano.
+
 https://www.elmundo.es/pais-vasco/2015/11/16/56498a05e2704ecc548b459f.html
 
 Las buenas oposiciones - https://www.google.com/search?q=oposiciones+vascas+amañadas&ie=utf-8&oe=utf-8

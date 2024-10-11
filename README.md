@@ -41,7 +41,8 @@ Franco eres tú.   <br>
 Qué es fascismo?   <br>
 Me preguntas mientras.   <br>
 instrumentalizas <br>
-al ciudadano, con propaganda,  <br>
+al ciudadano, <br>
+con propaganda,  <br>
 roja o azul.  <br>
 Qué es fascismo,    <br>
 fascismo eres tú.  

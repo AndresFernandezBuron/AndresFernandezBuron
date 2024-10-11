@@ -45,7 +45,7 @@ al ciudadano, <br>
 con propaganda,  <br>
 roja o azul.  <br>
 Qué es fascismo,    <br>
-fascismo eres tú.  
+fascismo eres tú, CHAPELDUN.  
 </p>
 
 <table width="100%" border="0" cellpadding="0" cellspacing="0">

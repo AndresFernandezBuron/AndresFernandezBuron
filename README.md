@@ -30,7 +30,20 @@ Y en la casa de Jehová moraré por largos días.
 <h3>Tú eres Franco, tú eres los grises, tú eres el bully, tú eres el abusador, tú eres la gestapo, tú eres Pilatos, tú eres Judas, tú eres Caín. Tú, eres masa.</h3>
 <h4>Todos los que vayais en mi contra, bien vacunados estáis, que a mi para inyectarme cosas, tuvieron que secuestrarme</h4>
 
-
+<p>
+Qué es Franco?  
+Me preguntas  
+mientras te blanqueas,  
+Y haces blanco en azul.  
+Qué es Franco,   
+Franco eres tú.  
+ 
+Qué es fascismo?  
+Me preguntas mientras.  instrumentalizas al ciudadano. 
+con propaganda roja o azul. 
+Qué es fascismo,   
+fascismo eres tú.  
+</p>
 
 <table width="100%" border="0" cellpadding="0" cellspacing="0">
 <tbody>

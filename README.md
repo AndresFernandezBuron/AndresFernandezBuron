@@ -31,17 +31,19 @@ Y en la casa de Jehová moraré por largos días.
 <h4>Todos los que vayais en mi contra, bien vacunados estáis, que a mi para inyectarme cosas, tuvieron que secuestrarme</h4>
 
 <p>
-Qué es Franco?  
-Me preguntas  
-mientras te blanqueas,  
-Y haces blanco en azul.  
-Qué es Franco,   
-Franco eres tú.  
+Qué es Franco?  <br>
+Me preguntas   <br>
+mientras te blanqueas,   <br>
+Y haces blanco en azul.   <br>
+Qué es Franco,    <br>
+Franco eres tú.   <br>
  
-Qué es fascismo?  
-Me preguntas mientras.  instrumentalizas al ciudadano. 
-con propaganda roja o azul. 
-Qué es fascismo,   
+Qué es fascismo?   <br>
+Me preguntas mientras.   <br>
+instrumentalizas al ciudadano, <br>
+con propaganda,  <br>
+roja o azul.  <br>
+Qué es fascismo,    <br>
 fascismo eres tú.  
 </p>
 

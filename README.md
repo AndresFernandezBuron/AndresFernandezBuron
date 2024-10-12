@@ -857,6 +857,8 @@ Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&
 
 Ska-P - Kemalo - https://m.youtube.com/watch?v=HzOD5UyEH5Y&pp=ygUMc2thIHAga2VtYWxv
 
+Cosculluela - Un AK - https://m.youtube.com/watch?v=oWS_B9OepCM&pp=ygUOY29zY3VsbHVlbGEgYWs%3D
+
 Cosculluela - Nos matamos - https://m.youtube.com/watch?v=_qzJOi3IHtU&pp=ygUXY29zY3VsbHVlbGEgbm9zIG1hdGFtb3M%3D
 
 Mitiko y Victor Rutty - Buscavidas - https://m.youtube.com/watch?v=qPhP1ODDGbw&pp=ygURbWl0aWtvIGJ1c2NhdmlkYXM%3D

@@ -32,6 +32,18 @@ Y en la casa de Jehová moraré por largos días.
 <h4>Todos los que vayais en mi contra, bien vacunados estáis, que a mi para inyectarme cosas, tuvieron que secuestrarme</h4>
 
 <h2>Arriba España, y abajo gladio, mercenarios de los cojones</h2>
+
+<p>
+Vinieron los necios a por los pensadores,
+y no dije nada porque yo no pensaba.
+
+Vinieron los malos a por los buenos,
+y no dije nada porque yo no era bueno.
+
+Vinieron los mengueles, a por los mongolos, y yo no dije nada, porque si no, los libertadores de la boina, no me dejaban entrar al bar.
+
+</p>
+	
 <p>
 Qué es Franco?  <br>
 Me preguntas   <br>
@@ -49,6 +61,8 @@ roja o azul.  <br>
 Qué es fascismo,    <br>
 fascismo eres tú, CHAPELDUN.  
 </p>
+
+
 
 <table width="100%" border="0" cellpadding="0" cellspacing="0">
 <tbody>

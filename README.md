@@ -841,6 +841,8 @@ Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&
 
 Ska-P - Kemalo - https://m.youtube.com/watch?v=HzOD5UyEH5Y&pp=ygUMc2thIHAga2VtYWxv
 
+Mitiko y Victor Rutty - Buscavidas - https://m.youtube.com/watch?v=qPhP1ODDGbw&pp=ygURbWl0aWtvIGJ1c2NhdmlkYXM%3D
+
 Tego Calderón - El que sabe, sabe - https://m.youtube.com/watch?v=HFxcAYrazv8&pp=ygUedGVnbyBjYWxkZXJvbiBlbCBxdWUgc2FiZSBzYWJl
 
 Poeta callejero - Pagale al poeta - https://m.youtube.com/watch?v=SqLIki50RtY&pp=ygUfcG9ldGEgY2FsbGVqZXJvIHBhZ2FsZSBhbCBwb2V0YQ%3D%3D

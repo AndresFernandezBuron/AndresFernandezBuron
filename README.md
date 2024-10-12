@@ -841,20 +841,15 @@ Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&
 
 Ska-P - Kemalo - https://m.youtube.com/watch?v=HzOD5UyEH5Y&pp=ygUMc2thIHAga2VtYWxv
 
-Poeta callejero - El poder del dinero - 
+Poeta callejero - Desahogo - https://m.youtube.com/watch?v=m2HgsJHHVk8&pp=ygUYcG9ldGEgY2FsbGVqZXJvIGRlc2Fob2dv
 
-La frase censurada es: Si tu mente es débil, el dinero lava tu conciencia.
-
-
-https://m.youtube.com/watch?v=Cvz1yGHowVE&pp=ygUjcG9ldGEgY2FsbGVqZXJvIGVsIHBvZGVyIGRlbCBkaW5lcm8%3D
+Poeta callejero - El poder del dinero - https://m.youtube.com/watch?v=Cvz1yGHowVE&pp=ygUjcG9ldGEgY2FsbGVqZXJvIGVsIHBvZGVyIGRlbCBkaW5lcm8%3D
 
 Poeta callejero - Que pasa - https://m.youtube.com/watch?v=UoyyLDMlliU&pp=ygUYcG9ldGEgY2FsbGVqZXJvIHF1ZSBwYXNh
 
 Chinatown - Carroña - https://m.youtube.com/watch?v=VfCIqLIWH64&pp=ygUSY2hpbmF0b3duIGNhcnJvw7Fh
 
 La mala t Kultama - Con diez o con veinte - https://m.youtube.com/watch?v=NmNc4s6BZWs&pp=ygUdbGEgbWFsYSBjb24gZGlleiBvIGNvbiB2ZWludGU%3D
-
-Hermanos herméticos - Asuntos internos - https://m.youtube.com/watch?v=kDt2B7-vy1Q&pp=ygUkaGVybWFub3MgaGVybWV0aWNvcyBhc3VudG9zIGludGVybm9z
 
 Tote king - Dólar más Euro - https://m.youtube.com/watch?v=Wqki3fMARY8&pp=ygUPdG90ZSBraW5nIGRvbGFy
 

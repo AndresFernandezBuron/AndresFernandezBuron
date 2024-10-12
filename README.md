@@ -28,8 +28,10 @@ Y en la casa de Jehová moraré por largos días.
 </h2>
 
 <h3>Tú eres Franco, tú eres los grises, tú eres el bully, tú eres el abusador, tú eres la gestapo, tú eres Pilatos, tú eres Judas, tú eres Caín. Tú, eres masa.</h3>
+
 <h4>Todos los que vayais en mi contra, bien vacunados estáis, que a mi para inyectarme cosas, tuvieron que secuestrarme</h4>
 
+<h2>Arriba España, y abajo gladio, mercenarios de los cojones</h2>
 <p>
 Qué es Franco?  <br>
 Me preguntas   <br>

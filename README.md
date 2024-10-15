@@ -857,6 +857,8 @@ Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&
 
 Omega - Es que no hay manera - https://m.youtube.com/watch?v=0O24uUgY9M4&pp=ygUTb21lZ2Egbm8gaGF5IG1hbmVyYQ%3D%3D
 
+Poeta callejero - Dominicano - https://m.youtube.com/watch?v=iyY45hdZtMU&pp=ygUacG9ldGEgY2FsbGVqZXJvIGRvbWluaWNhbm8%3D
+
 Poeta callejero - 16 de mayo - https://m.youtube.com/watch?v=oLLlv4YY-38&pp=ygUacG9ldGEgY2FsbGVqZXJvIDE2IGRlIG1heW8%3D
 
 Omega - El escudo de Dios - https://m.youtube.com/watch?v=sg2DVluBWGs&pp=ygUUb21lZ2EgZXNjdWRvIGRlIGRpb3M%3D

@@ -855,6 +855,8 @@ Samantha - Eviva España - https://m.youtube.com/watch?v=mLWSnAZh32o&pp=ygUWc2Ft
 
 Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&pp=ygUhbWFub2xvIGVzY29iYXIgeSBxdWUgdml2YSBlc3Bhw7Fh
 
+Omega - El escudo de Dios - https://m.youtube.com/watch?v=sg2DVluBWGs&pp=ygUUb21lZ2EgZXNjdWRvIGRlIGRpb3M%3D
+
 Poeta callejero - Mierda para el que subestima - https://m.youtube.com/watch?v=UL6mwRduDnc&pp=ygUXcG9ldGEgY2FsbGVqZXJvICB2b2x2aW8%3D
 
 Poeta callejero - Desahogo - https://m.youtube.com/watch?v=m2HgsJHHVk8&pp=ygUYcG9ldGEgY2FsbGVqZXJvIGRlc2Fob2dv

@@ -855,6 +855,14 @@ Samantha - Eviva España - https://m.youtube.com/watch?v=mLWSnAZh32o&pp=ygUWc2Ft
 
 Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&pp=ygUhbWFub2xvIGVzY29iYXIgeSBxdWUgdml2YSBlc3Bhw7Fh
 
+Poeta callejero - Mierda para el que subestima - https://m.youtube.com/watch?v=UL6mwRduDnc&pp=ygUXcG9ldGEgY2FsbGVqZXJvICB2b2x2aW8%3D
+
+Poeta callejero - Desahogo - https://m.youtube.com/watch?v=m2HgsJHHVk8&pp=ygUYcG9ldGEgY2FsbGVqZXJvIGRlc2Fob2dv
+
+Poeta callejero - El poder del dinero - https://m.youtube.com/watch?v=Cvz1yGHowVE&pp=ygUjcG9ldGEgY2FsbGVqZXJvIGVsIHBvZGVyIGRlbCBkaW5lcm8%3D
+
+Poeta callejero - Que pasa - https://m.youtube.com/watch?v=UoyyLDMlliU&pp=ygUYcG9ldGEgY2FsbGVqZXJvIHF1ZSBwYXNh
+
 Omega - Yo ya mangué tó - https://m.youtube.com/watch?v=ULHEPLapJ78&pp=ygUVb21lZ2EgeWEgeW8gbWFuZ3VlIHRv
 
 Under side - La misma moneda - https://m.youtube.com/watch?v=VqrN3nwRDTM&pp=ygUZdWRlciBzaWRlIGxhIG1pc21hIG1vbmVkYQ%3D%3D
@@ -870,12 +878,6 @@ Mitiko y Victor Rutty - Buscavidas - https://m.youtube.com/watch?v=qPhP1ODDGbw&p
 Tego Calderón - El que sabe, sabe - https://m.youtube.com/watch?v=HFxcAYrazv8&pp=ygUedGVnbyBjYWxkZXJvbiBlbCBxdWUgc2FiZSBzYWJl
 
 Poeta callejero - Pagale al poeta - https://m.youtube.com/watch?v=SqLIki50RtY&pp=ygUfcG9ldGEgY2FsbGVqZXJvIHBhZ2FsZSBhbCBwb2V0YQ%3D%3D
-
-Poeta callejero - Desahogo - https://m.youtube.com/watch?v=m2HgsJHHVk8&pp=ygUYcG9ldGEgY2FsbGVqZXJvIGRlc2Fob2dv
-
-Poeta callejero - El poder del dinero - https://m.youtube.com/watch?v=Cvz1yGHowVE&pp=ygUjcG9ldGEgY2FsbGVqZXJvIGVsIHBvZGVyIGRlbCBkaW5lcm8%3D
-
-Poeta callejero - Que pasa - https://m.youtube.com/watch?v=UoyyLDMlliU&pp=ygUYcG9ldGEgY2FsbGVqZXJvIHF1ZSBwYXNh
 
 Chinatown - Carroña - https://m.youtube.com/watch?v=VfCIqLIWH64&pp=ygUSY2hpbmF0b3duIGNhcnJvw7Fh
 

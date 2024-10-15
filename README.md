@@ -857,6 +857,8 @@ Manolo Escobar - Y QUE VIVA ESPAÑA - https://m.youtube.com/watch?v=IPSfFz6S8A8&
 
 Omega - Es que no hay manera - https://m.youtube.com/watch?v=0O24uUgY9M4&pp=ygUTb21lZ2Egbm8gaGF5IG1hbmVyYQ%3D%3D
 
+Omega - Dueño - https://m.youtube.com/watch?v=IH7f0HrXYqk&pp=ygUMb21lZ2EgZHVlw7Fv
+
 Poeta callejero - Dominicano - https://m.youtube.com/watch?v=iyY45hdZtMU&pp=ygUacG9ldGEgY2FsbGVqZXJvIGRvbWluaWNhbm8%3D
 
 Vico C y Funky - Careta - https://m.youtube.com/watch?v=mXHGrGrCUYQ&pp=ygUNdmljbyBjIGNhcmV0YQ%3D%3D

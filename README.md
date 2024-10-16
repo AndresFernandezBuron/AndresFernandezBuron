@@ -34,6 +34,10 @@ Y en la casa de Jehová moraré por largos días.
 <h2>Arriba España, y abajo gladio, mercenarios de los cojones</h2>
 
 <p>
+Si habiendo sido gladio algo público, en vez de investigar por tu cuenta, te conformas con preguntar y te dicen que eran solo de derechas, posiblemente has permitido que en democracia te pongan pasaporte y/o salvoconducto hasta para entrar a la taberna de tu pueblo.
+</p>
+
+<p>
 Vinieron los necios a por los pensadores,
 y no dije nada porque yo no pensaba.
 
